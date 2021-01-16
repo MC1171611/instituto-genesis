@@ -37,12 +37,12 @@
 
 ### INFORMACIÓN GENERAL: {#general-information}
 
--50 capítulos
--1.533 versículos
--34.733 palabras
--Escrito: 1490 a.C.
--Periodo tratado: 4004 a.C. - 1689 a.C.
--Escritor humano: Moisés - 1 Corintios 14:34 (Génesis 3:16); Juan 1:45 (Génesis 3:15; 49:10); Juan 7:22, otras citas
+- 50 capítulos
+- 1.533 versículos
+- 34.733 palabras
+- Escrito: 1490 a.C.
+- Periodo tratado: 4004 a.C. - 1689 a.C.
+- Escritor humano: Moisés - 1 Corintios 14:34 (Génesis 3:16); Juan 1:45 (Génesis 3:15; 49:10); Juan 7:22, otras citas
 
 El Título "Génesis" significa "origen", "engendramiento"; "principio" (comienzo); "El libro de los principios". El nombre del libro en el Tanaj hebreo se derive de la primera palabra del libro: בְּרֵאשִׁית, "Bereshith", "En el principio". Sin embargo, el nombre del libro en español es una transliteración del nombre griego "γένεσις", como otros nombres del Antiguo Testamento (Éxodo de ἔξοδος, Deuteronomio de δευτερονόμιον, Ésdras de ἔσδρας, etc.).
 
