@@ -27,6 +27,8 @@ Es imprecindible tener en memoria Quién es el Autor de este acto de la Creació
 
 También es importante anotar que no hay tiempo marcado en este versículo; simplemente dice lo que Dios hizo, y no dice cuándo ni cuánto tiempo duró. Lo más probable, en la *opinión* del autor, es que esta obra creatativa duró un poco tiempo, quizás seguido por mil años de paz. Sin embargo, esto es especulación ya que la Biblia no lo *dice*. Sabemos que sí ocurrió; no sabemos *cuándo*.
 
+Las palabras **los cielos** vienen de una palabra hebrea que no tiene forma singular, similar al uso en español. Cuando la Biblia quiere enfatizar que es más que uno, a veces dice **cielos de los cielos*** (1Rey 8:27; Neh 9:6; Sal 68:33; 148:4).
+
 >2 **Y la tierra estaba desadornada y vacía; y las tinieblas *estaban* sobre la haz del abismo: y el Espíritu de Dios se movía sobre la haz de las aguas.** {#chapter01verse02}
 
 Que algo pasó es un hecho histórico; no hay ninguna "Teoría del Intervalo" si no una realidad obvia que lo que Dios creó en versículo 1 no sigue así, sino se encuentra **"[desadornada][1] y vacía"**, donde estaba una creación de Dios completa y acabada (Deuteronomio 32:4; 2 Samuel 22:31) en el versículo anterior. Aunque los detalles son pocos, se puede encontrar algunas cosas a través de la Biblia, que nos explica que toda obra de Dios es perfecta; entonces la creación de versículo 1 no es lo que se ve en versículo 2.

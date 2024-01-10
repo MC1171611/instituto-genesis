@@ -1,5 +1,8 @@
-GÉNESIS CAPÍTULO 4
-Génesis 4:1 Y conoció Adam a su mujer Eva, la cual concibió y parió a Caín, y dijo: Ganado he un varón por Jehová.
+###GÉNESIS CAPÍTULO 4
+
+>Génesis 4:1 Y conoció Adam a su mujer Eva, la cual concibió y parió a Caín, y dijo: Ganado he un varón por Jehová.
+
+
 “conoció” – Esto es conocimiento carnal, una relación sexual (Génesis 4:17; 38:26). Conocimiento de algo/alguien requiere experiencia, tanto almática como física. Es la primera mención abierta de coito.
 “Caín” – Su nombre significa “adquirido, hecho, lanzo”. Es decir, tipifica su padre Adam. La mujer creó que Caín era la simiente prometida de 3:15; obviamente no pudiera de haber estado más equivocada (o quizás ¿engañada?).
 1 Juan 3:21
