@@ -2,7 +2,7 @@
 
 (4004 a.C.) Este capítulo (y hasta capítulo 12) rige toda la historia y la existencia del hombre, del universo físico, y aun la tela de la realidad. Sin creer estos versículos, el hombre se deja sin entender lo primordial de su existencia: de dónde vino, por qué existe, y dónde va cuando muera. En lo más sencillo, el hombre que rechaza la realidad como se expone en estos capítulos es estúpido. No obstante, desde que salieron del arca (Génesis 9), no han dejado de intentar deshacer y desmentir lo que Dios reveló en los primeros dos capítulos de este libro. Es un testamento a la locura del ser humano aparte de Dios que sigue con su payasada deseando alejarse de su Creador y negar Su existencia. Trae a la memoria lo que Pablo escribió "¿o dirá el vaso de barro al que le labró: Por qué me has hecho así?" (Romanos 9:20). Hasta el *polvo* tiene más seso que un ateo.
 
->**Génesis 1:1 En el principio creó Dios los cielos y la tierra.** {#chapter01verse01}
+>Génesis 1:1 **En el principio creó Dios los cielos y la tierra.** {#chapter01verse01}
 
 Este versículo, el primero en la Biblia, revela que este libro (y este Libro) es el libro más importante en el mundo. El versículo se compone de 7 palabras hebreas, con 28 letras hebreas. “Dios” en hebreo (אֱלֹהִים, “elohim”) es la tercera palabra y se traduce en 10 palabras castellanas.
 
@@ -208,6 +208,6 @@ En el “**día sexto**” Dios creó al hombre. Desde entonces el hombre se se�
 
 [1]: Esta palabra aparece solamente en la 1569 de Reina, la 1602 de Valera (más una reproducción en 1861) y la 1865. Las otras versiones, empezando con la edición de 1862, cambiaron la palabra a "desordenada".
 
-[2]: Aunque es dificil reducir a un par de renglones de texto, la Biblia indica que el fruto prohibido era la uva. Sin duda no era una *manzana*.
+[2]: Aunque es difícil reducir a un par de renglones de texto, la Biblia indica que el fruto prohibido era la uva. Sin duda no era una *manzana*.
 
 [3]: No obstante, esa palabra no se base en la palabra "firme" como muchos dicen, de algo rígido, si no del Latín  "firmare" que lleva las ideas de "declarar, probar, confirmar, establecer, apoyar" además de su uso como algo fijo o establecido como firme. Sería más bien "confirmar".
