@@ -1,39 +1,46 @@
-# H1 Book Title
-## H2 Caption
-### H3 Chapters
-#### H4
-##### H5
-###### H6
+'#' H1 Book Title
 
-{#heading-class}
+'##' H2 Caption
 
-**bold**
-*italic*
-***bolditalic***
+'###' H3 Chapters
 
-> blockquote (Verses)
->> nested blockquote
+'####' H4
 
-1. Ordered Lists
-2.
-3.A.
-3.B.
-4.
+'#####' H5
 
-- Unordered Lists
--
--+
--+
--
+'######' H6
 
-[reference] [1^]
-[1^]: URL/information
+'{#heading-class}'
+
+'**bold**'
+'*italic*'
+'***bolditalic***'
+
+'>' blockquote (Verses)
+'>>' nested blockquote
+
+'1.' Ordered Lists
+'2.'
+'3.A.'
+'3.B.'
+'4.'
+
+'-' Unordered Lists
+'-'
+'-+'
+'-+'
+'-'
+
+'[reference] [1^]'
+'[1^]: URL/information'
 
 ------------
 
 ## PRIMER LIBRO DE MOISÉS, LLAMADO COMUNMENTE
 
 # GÉNESIS {#title}
+
+## INTRODUCCIÓN AL COMENTARIO SOBRE EL LIBRO DE GÉNESIS
 
 ### INFORMACIÓN GENERAL: {#general-information}
 
@@ -48,21 +55,20 @@ El Título "Génesis" significa "origen", "engendramiento"; "principio" (comienz
 
 ### BOSQUEJO GENERAL DEL LIBRO: {#general-outline}
 
-1.	**Los Tempranos Principios - 1:1 – 11:32**
-    -	La Creación - 1:1 – 2:25
-    -	La Tentación y la Caída - 3:1 – 24
-    -	Los Dos Hermanos - 4:1 – 26
-    -	Set y sus Descendientes - 5:1 – 32
-    -	El Pecado y el Diluvio - 6:1 – 8:22
-    -	Vida de Noé, y Profecía - 9:1 – 29
-    -	La Tabla de las Naciones - 10:1 – 32
-    -	La Torre de Babel - 11:1 – 32
-2.	**Los Patriarcas - 12:1 – 50:26**
-    -	Abraham - 12:1 – 25:18
-    -	Isaac - 25:19 – 26:35
-    -	Jacob - 27:1 – 36:43
-    -	José - 37:1 – 50:26
-
+1. **Los Tempranos Principios - 1:1 – 11:32**
+    - La Creación - 1:1 – 2:25
+    - La Tentación y la Caída - 3:1 – 24
+    - Los Dos Hermanos - 4:1 – 26
+    - Set y sus Descendientes - 5:1 – 32
+    - El Pecado y el Diluvio - 6:1 – 8:22
+    - Vida de Noé, y Profecía - 9:1 – 29
+    - La Tabla de las Naciones - 10:1 – 32
+    - La Torre de Babel - 11:1 – 32
+2. **Los Patriarcas - 12:1 – 50:26**
+    - Abraham - 12:1 – 25:18
+    - Isaac - 25:19 – 26:35
+    - Jacob - 27:1 – 36:43
+    - José - 37:1 – 50:26
 
 ### NUMEROLOGÍA BÍBLICA: {#biblical-numerology}
 
@@ -100,6 +106,6 @@ Contraria a la mentalidad moderna del ser humano, este libro también demuestra 
 Dios no pide disculpas a nadie, y los que toman Su lado no tienen que pedir disculpas tampoco. Hay miles y miles de iglesias que predican un mensaje suave y antropocéntrico con palabras suaves y seductoras. No encontrarás ese mensaje satánico en este libro ni en la Biblia. En la Biblia, Dios es el Héroe y el hombre es el villano. Una vez reconocido este hecho, uno puede proseguir al próximo paso. El libro de Génesis nos demuestra vez tras vez que Dios dejará al hombre cocer en sus propios jugos (por las malas decisiones de ese mismo hombre) mejor que tranzar Su santidad por el pecado del ser humano. La naturaleza de Dios no cambia para acomodar al ser humano, aunque todo el mundo va en contra, incluyendo nuestra cultura moderna, donde todos quieren romper Sus coyundas y cuerdas (justicia y leyes, Salmo 2:2-3).
 
 ----------------------------
-[^1]: Artículo se encuentra en la página https://www.valera1865.org
+[^1]: Artículo se encuentra en la página <https://www.valera1865.org>
 [^2]: Veáse comentario sobre el Libro de Revelación, capítulo 2.
 [^3]: Véase comentario sobre el Libro de Romanos, capítulos 1-2.
