@@ -1,0 +1,82 @@
+project:
+  type: book
+  output-dir: _book
+
+lang: es
+
+book:
+  title: "Génesis"
+  subtitle: "Comentario sobre el primer libro de Moisés, llamado comúnmente Génesis"
+  author: "Instituto Bíblico Valera Online"
+  chapters:
+    - index.md
+    - genesis-01.md
+    - genesis-02.md
+    - genesis-03.md
+    - genesis-04.md
+    - genesis-05.md
+    - genesis-06.md
+    - genesis-07.md
+    - genesis-08.md
+    - genesis-09.md
+    - genesis-10.md
+    - genesis-11.md
+    - genesis-12.md
+    - genesis-13.md
+    - genesis-14.md
+    - genesis-15.md
+    - genesis-16.md
+    - genesis-17.md
+    - genesis-18.md
+    - genesis-19.md
+    - genesis-20.md
+    - genesis-21.md
+    - genesis-22.md
+    - genesis-23.md
+    - genesis-24.md
+    - genesis-25.md
+    - genesis-26.md
+    - genesis-27.md
+    - genesis-28.md
+    - genesis-29.md
+    - genesis-30.md
+    - genesis-31.md
+    - genesis-32.md
+    - genesis-33.md
+    - genesis-34.md
+    - genesis-35.md
+    - genesis-36.md
+    - genesis-37.md
+    - genesis-38.md
+    - genesis-39.md
+    - genesis-40.md
+    - genesis-41.md
+    - genesis-42.md
+    - genesis-43.md
+    - genesis-44.md
+    - genesis-45.md
+    - genesis-46.md
+    - genesis-47.md
+    - genesis-48.md
+    - genesis-49.md
+    - genesis-50.md
+
+number-sections: false
+
+filters:
+  - filters/scripture.lua
+
+format:
+  html:
+    theme: default
+    css: styles/book.css
+    toc: true
+  epub:
+    css: styles/epub.css
+  pdf:
+    documentclass: scrbook
+    pdf-engine: xelatex
+    papersize: a5
+    fontsize: 10pt
+    mainfont: "Times New Roman"
+    include-in-header: styles/preamble.tex

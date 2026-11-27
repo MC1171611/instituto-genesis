@@ -1,0 +1,39 @@
+# Génesis 20 {#gen-20}
+
+::: scripture
+[1]{.vn #gen-20-1} De allí se partió Abraham a la tierra del mediodía, y asentó entre Cádes y Sur; y peregrinó en Gerar.
+
+[2]{.vn #gen-20-2} Y decía Abraham de Sara su mujer: Mi hermana es. Y Abimelec, rey de Gerar, envió, y tomó a Sara.
+
+[3]{.vn #gen-20-3} Empero Dios vino a Abimelec en sueños de noche, y díjole: He aquí, muerto eres por la mujer que tomaste, la cual es casada con marido.
+
+[4]{.vn #gen-20-4} Mas Abimelec no había llegado a ella, y dijo: Señor: ¿matarás también la gente justa?
+
+[5]{.vn #gen-20-5} ¿Él no me dijo: Mi hermana es; y ella también dijo: Mi hermano es? Con sencillez de mi corazón, y con limpieza de mis manos he hecho esto.
+
+[6]{.vn #gen-20-6} Y díjole Dios en sueños: Yo también sé que con entereza de tu corazón has hecho esto: y yo también te detuve de pecar contra mí, por tanto no te permití que tocases en ella.
+
+[7]{.vn #gen-20-7} Ahora, pues, vuelve la mujer a su marido, porque es profeta; y orará por ti, y vive. Y si tú no la volvieres, sepas que muriendo morirás con todo lo que fuere tuyo.
+
+[8]{.vn #gen-20-8} Entonces Abimelec se levantó de mañana, y llamó a todos sus siervos, y dijo todas estas palabras en los oídos de ellos, y temieron los hombres en gran manera.
+
+[9]{.vn #gen-20-9} Después llamó Abimelec a Abraham, y díjole: ¿Qué nos has hecho? ¿y qué pequé *yo* contra ti, que has metido sobre mí, y sobre mi reino tan gran pecado? Obras que no son de hacer has hecho conmigo.
+
+[10]{.vn #gen-20-10} Y dijo más Abimelec a Abraham: ¿Qué viste, para que hicieses esto?
+
+[11]{.vn #gen-20-11} Y Abraham respondió: Porque dije: Cierto no hay temor de Dios en este lugar: y matarme han por causa de mi mujer.
+
+[12]{.vn #gen-20-12} Y también cierto mi hermana *es*, hija de mi padre, mas no hija de mi madre, y toméla por mujer.
+
+[13]{.vn #gen-20-13} Y fue, que cuando Dios me hizo salir vagabundo de la casa de mi padre, *yo* le dije: Esta *será* tu misericordia que harás conmigo, que en todos los lugares donde viniéremos, digas de mí, Mi hermano *es*.
+
+[14]{.vn #gen-20-14} Entonces Abimelec tomó ovejas y vacas, y siervos, y siervas, y dio a Abraham, y volvióle a Sara su mujer:
+
+[15]{.vn #gen-20-15} Y dijo Abimelec: He aquí, mi tierra *está* delante de ti, en lo que bien te pareciere, habita.
+
+[16]{.vn #gen-20-16} Y a Sara dijo: He aquí, he dado mil *pesos* de plata a tu hermano; he aquí, él te es por velo de ojos a todos los que *estuvieron* contigo, y con todos: y escarmienta.
+
+[17]{.vn #gen-20-17} Entonces Abraham oró a Dios, y Dios sanó a Abimelec y a su mujer, y a sus siervas, y parieron.
+
+[18]{.vn #gen-20-18} Porque cerrando había cerrado Jehová toda matriz de la casa de Abimelec, a causa de Sara mujer de Abraham.
+:::

@@ -1,0 +1,6 @@
+% Scripture blocks: indented, bold (matching how the commentary quotes verses).
+\newenvironment{scripture}%
+  {\par\medskip\begin{list}{}{\leftmargin=1.2em\rightmargin=0pt\itemsep=0pt\parsep=0.2em}\item\relax\bfseries}%
+  {\end{list}\medskip}
+% Verse numbers: small superscript.
+\newcommand{\vn}[1]{\textsuperscript{\normalfont\footnotesize #1}\,}

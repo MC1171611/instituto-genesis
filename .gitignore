@@ -1,1 +1,4 @@
 STYLE.md
+_book/
+.quarto/
+*_files/
