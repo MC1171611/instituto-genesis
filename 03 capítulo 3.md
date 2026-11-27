@@ -38,7 +38,7 @@ Su manera de siempre es incitar al hombre dudar la palabra de Dios, y de allí e
 4. Satanás busca la entrada más fácil, y muchas veces es la mujer; 1 Pedro 3:6-7; 1 Timoteo 2:14
 
 >[2]{#chapter03verse02} **Y la mujer respondió a la serpiente: Del fruto de los árboles del huerto comemos;**  
->[3]{#chapter03verse03} **Mas del fruto del árbol que está en medio del huerto dijo Dios; No comeréis de él, ni tocaréis en él, porque no muráis.**  
+>[3]{#chapter03verse03} **Mas del fruto del árbol que *está* en medio del huerto dijo Dios; No comeréis de él, ni tocaréis en él, porque no muráis.**  
 
 Primeramente, vemos los tres pecados doctrinales de la mujer:
 
@@ -71,7 +71,7 @@ Satanás siempre usa la misma manera de derribar al hombre. No le es necesario c
 2. Enseñar que toda verdad es sujetica, y
 3. Hacer el hombre como Dios.
 
->[6]{#chapter03verse06} **¶ Y vio la mujer que el árbol era bueno para comer, y que era deseable a los ojos, y árbol de codicia para entender: y tomó de su fruto, y comió, y dio también a su marido, y comió con ella.**  
+>[6]{#chapter03verse06} **¶ Y vio la mujer que el árbol *era* bueno para comer, y que *era* deseable a los ojos, y árbol de codicia para entender: y tomó de su fruto, y comió, y dio también a su marido, y comió con ella.**  
 
 Nótese que, al parecer de la mujer, todo era 100% positivo (Proverbios 14:12; 21:2). No era ninguna razón por la cual dudar lo que dijo la serpiente. A la vez, la Biblia nos demuestra las tres categorías de pecado, o los tres fundamentales de la tentación:
 
@@ -102,7 +102,7 @@ Hebreos 12:2
 
 **“comió con ella”** – ¡Él estaba allí todo el tiempo! Y, peor incluso, eligió comer con su mujer en vez de **“cenar”** con Dios (Revelación 3:17-20). Por esto, el hombre lleva la culpa del pecado (Romanos 5:12), y no la mujer (1 Timoteo 2:14), aunque ella comió primero. El hombre siempre tiene la culpa, la responsabilidad, y la autoridad.
 
->[7]{#chapter03verse07} **Y fueron abiertos los ojos de ellos ambos, y conocieron que estaban desnudos: entonces cosieron hojas de higuera, e hiciéronse delantales.**  
+>[7]{#chapter03verse07} **Y fueron abiertos los ojos de ellos ambos, y conocieron que *estaban* desnudos: entonces cosieron hojas de higuera, e hiciéronse delantales.**  
 
 **“abiertos los ojos”** – El diablo no mintió acerca de este punto. Sin embargo, el problema es que no necesitaban que sus ojos sean abiertos: ¡necesitaban que sus ojos sean destapados¡
 
@@ -132,7 +132,7 @@ Israel religioso antes de la Segunda Venida del SEÑOR.
 
 **“escondióse el hombre y su mujer”** – La mala consciencia no le deja descansar. Por haberse pecado, sabían que tenían pecado y no podían estar delante de Dios. Todo hombre que no reconoce esta realidad es tonto además de leso, por pensar que podría aparecer delante de Dios en su condición asquerosa.
 
->[9]{#chapter03verse09} **¶ Y llamó Jehová Dios al hombre, y díjole: ¿Dónde estás tú?**  
+>[9]{#chapter03verse09} **¶ Y llamó Jehová Dios al hombre, y díjole: ¿Dónde *estás* tú?**  
 
 **“¿Dónde estás tú?”** - Por primera vez aparece Dios preguntando algo, y está buscando al hombre. Claramente no está preguntando para descubrir una verdad oculta; Él ya sabe todo. Cuando Dios hace una pregunta, casi siempre está dando al hombre una oportunidad de ser honesto, de admitir la culpa, y de pedir perdón por algo. Pero, como el ser malo que es, casi siempre responde mal.
 
@@ -170,7 +170,7 @@ Pero es un temor correcto, conforme a Su palabra, no las palabras y enseñanzas 
 - Isaías 29:13
 
 >[11]{#chapter03verse11} **Y díjole: ¿Quién te enseñó, que estabas desnudo? ¿Has comido del árbol de que yo te mandé que no comieses?**  
->[12]{#chapter03verse12} **Y el hombre respondió: La mujer que diste para estar conmigo, ella me dio del árbol, y comí.**  
+>[12]{#chapter03verse12} **Y el hombre respondió: La mujer que diste *para estar* conmigo, ella me dio del árbol, y comí.**  
 
 Obviamente Dios ya sabía; ¿esconderse ha de Jehová alguna cosa? (Génesis 18:14; Jeremías 23:24)
 
@@ -184,7 +184,7 @@ Al fondo, está culpando no a su mujer, ¡sino a Dios mismo! Después de todo, e
 
 Nótese que Adam dijo “para estar conmigo”, mientras Dios dijo “delante de él” (vea los apuntes en Génesis 2:18). Otra vez, está intentando escapar la culpa por no haber tomado el control de la situación. Dios lo hizo responsable por ella, pero él está buscando evitar que el pecado sea su responsabilidad.
 
->[13]{#chapter03verse13} **Entonces Jehová Dios dijo a la mujer: ¿Qué es esto que hiciste? Y dijo la mujer: La serpiente me engañó, y comí.**  
+>[13]{#chapter03verse13} **Entonces Jehová Dios dijo a la mujer: ¿Qué *es* esto *que* hiciste? Y dijo la mujer: La serpiente me engañó, y comí.**  
 
 Ella también busca como evitar la culpa, pero esta vez ella sí tiene razón (2 Timoteo 2:12-14).
 
@@ -198,7 +198,7 @@ Dios no preguntó nada a la serpiente. Él ya sabía todo acerca de él. La serp
 
 Satanás puede hablar por la boca de cualquier persona, incluso una persona salva; Mateo 16:17, 23.
 
->[15]{#chapter03verse15} **Y enemistad pondré entre tí y la mujer, y entre tu simiente y su simiente; esta te herirá en la cabeza, y tú le herirás en el calcañar.**  
+>[15]{#chapter03verse15} **Y enemistad pondré entre ti y la mujer, y entre tu simiente y su simiente; esta te herirá *en* la cabeza, y tú le herirás *en* el calcañar.**  
 
 Aquí empieza la batalla entre Satanás y Dios en el mundo. Ya había pasado un combate cuando se le echó del cielo (Isaías 14:12-15), pero ya que Adam perdió su dominio, y Satanás hereda la corona del reino de los cielos, y la batalla llega a la tierra. Donde antes su territorio era los cielos solamente, ahora toma control temporal de la tierra por defecto también. Pero a la vez es una batalla espiritual en el mundo terrenal o la esfera física.
 
@@ -233,7 +233,7 @@ Esto es una profecía del nacimiento virginal, porque el alcance es la cabeza, e
 Juan 1:14
 Mateo 27:35-37, etc.
 
->[16]{#chapter03verse16} **A la mujer dijo: Multiplicando multiplicaré tus dolores, y tus preñeces: con dolor parirás los hijos, y a tu marido será tu deseo, y él se enseñoreará de tí.**  
+>[16]{#chapter03verse16} **A la mujer dijo: Multiplicando multiplicaré tus dolores, y tus preñeces: con dolor parirás los hijos, y a tu marido *será* tu deseo, y él se enseñoreará de ti.**  
 
 Esta “maldición” (de un punto de vista) es vigente a lo menos hasta la Segunda Venida. No hay indicación de esta declaración caducando hasta quizás Revelación 22:3, si esa “maldición” incluye al pasaje tratado aquí, y allí solamente trata de la Jerusalem Nueva y los que viven en ella.
 
@@ -262,7 +262,7 @@ Ahora hay anestesia, control de la natalidad, y mujeres liberadas. ¿Ve como el 
 - 1 Corintios 14:34-35
 - 1 Timoteo 2:11-12
 
->[17]{#chapter03verse17} **Y al hombre dijo: Porque obedeciste a la voz de tu mujer, y comiste del árbol de que te mandé, diciendo: No comerás de él: Maldita será la tierra por amor de tí: con dolor comerás de ella todos los días de tu vida.**  
+>[17]{#chapter03verse17} **Y al hombre dijo: Porque obedeciste a la voz de tu mujer, y comiste del árbol de que te mandé, diciendo: No comerás de él: Maldita *será* la tierra por amor de ti: con dolor comerás de ella todos los días de tu vida.**  
 
 Aquí empiezan tres versículos de maldición sobre el hombre, a comparación a un solo versículo para la mujer. El hombre siempre lleva el castigo mayor por su responsabilidad (que proviene de su autoridad) y su mayor facultad contra el engaño. Otra vez, no fue engañado: eligió con su libre albedrío tomar del fruto y desobedecer a Dios. La Biblia no nos da índice que la mujer oía el mandato de Dios directamente; solamente podemos dar por hecho que Adam se le había comunicado después. Pero Adam oyó la voz de Dios en dar el mandamiento; él no fue engañado: simplemente eligió desobedecer.
 
@@ -283,7 +283,7 @@ Incluso una mujer “virtuosa” (**"valiente"**, Prov. 31:10)puede ser una vent
 
 - Actos 18:2, 24-26
 
-“Maldita será la tierra por amor de tí” – En realidad esto es la misericordia de Dios mostrada aquí, porque en su condición pecaminosa, sin la muerte, llegaría a ser un mundo entero podrido y asqueroso. La muerte en la creación caída permita que lo nuevo brote después de que lo viejo muera. Dios no pudo permitir que la tierra sigue como Él la creó en el principio. También apunta las siguientes realidades de esta frase y lo que viene después:
+“Maldita será la tierra por amor de ti” – En realidad esto es la misericordia de Dios mostrada aquí, porque en su condición pecaminosa, sin la muerte, llegaría a ser un mundo entero podrido y asqueroso. La muerte en la creación caída permita que lo nuevo brote después de que lo viejo muera. Dios no pudo permitir que la tierra sigue como Él la creó en el principio. También apunta las siguientes realidades de esta frase y lo que viene después:
 
 1. Lo que comes no te da vida verdadera
 2. Trabajar es doloroso

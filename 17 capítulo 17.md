@@ -65,7 +65,7 @@ Surge de repente la naturaleza humana, natural y carnal de Abraham al escuchar e
 
 >[18]{#chapter17verse18} **Y dijo Abraham a Dios: Ojalá Ismael viva delante de ti.**  
 
-Aquí en versículo 18 (6+6+6) aparece por primera de 15 veces (3x5) la palabra **"Ojalá"**, un indicador en la Biblia Reina-Valera 1865 de *una oración no contestada*. Incluso Dios utiliza esta palabra (Deuteronomio 32:29; Isaías 48:18; Revelación 3:15) y hasta las cosas que Dios quiso no ocurrieron. El significado de la palabra en el diccionario es "que Alá otorgue" (debido a su origen en Árabe) o "si Dios quiere".
+Aquí en versículo 18 (6+6+6) aparece por primera de 15 veces (3x5) la palabra **"Ojalá"**, un indicador en la Biblia Valera 1865 de *una oración no contestada*. Incluso Dios utiliza esta palabra (Deuteronomio 32:29; Isaías 48:18; Revelación 3:15) y hasta las cosas que Dios quiso no ocurrieron. El significado de la palabra en el diccionario es "que Alá otorgue" (debido a su origen en Árabe) o "si Dios quiere".
 
 El pedido de Abraham aquí es **"Ismael viva delante de ti"**, que Dios acepte Ismael como el elegido, pero Dios ya lo había rechazado (no puede ser el primero). La voluntad de Dios fue a través de Sara, no el reemplazo humanista.
 
@@ -82,7 +82,7 @@ Dios prometió que Ismael iba a multiplicar en **"gran gente"**, pues hay más q
 
 Dios eligió a Isaac y eso era todo. No había más que decir. (Proverbios 18:19) Dios **"subió"** ya que no había nada más que decir: ahora le toca a Abraham obedecer.
 
->[23]{#chapter17verse23} **Entonces tomó Abraham a Ismael su hijo, y a todos los *siervos* nacidos en su casa, y a todos los comprados por su dinero, todo macho en los varones de la casa de Abraham, y circuncidó la carne de su prepucio en aquel mismo día, como Dios lo había hablado con él.**  
+>[23]{#chapter17verse23} **¶ Entonces tomó Abraham a Ismael su hijo, y a todos los *siervos* nacidos en su casa, y a todos los comprados por su dinero, todo macho en los varones de la casa de Abraham, y circuncidó la carne de su prepucio en aquel mismo día, como Dios lo había hablado con él.**  
 >[24]{#chapter17verse24} **Era Abraham de edad de noventa y nueve años, cuando circuncidó él la carne de su prepucio.**  
 >[25]{#chapter17verse25} **E Ismael su hijo de trece años, cuando fue circuncidada la carne de su prepucio.**  
 >[26]{#chapter17verse26} **En aquel mismo día fue circuncidado Abraham, e Ismael su hijo:**  

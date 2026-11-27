@@ -1,7 +1,7 @@
 ### GÉNESIS CAPÍTULO 11 {#chapter11}
 11 es el número de un clímax, el último punto antes que un colapso o un acontecimiento malo. A la vez, este número y su significado no son tan fáciles de fijar, pero sí existe.
 
->[1]{#chapter11verse01} **Era entonces toda la tierra de una lengua, y de unas mismas palabras.**  
+>[1]{#chapter11verse01} **Era entonces toda la tierra de una lengua, y de unas *mismas* palabras.**  
 
 “toda la tierra” – todos juntos, exactamente como el plan del Anticristo (y su precursor actual, la ONU).
 Salmo 2:1-5
@@ -14,10 +14,10 @@ Sofonías 3:8 – Dios los junta para destruirlos (Mateo 13:28-30)
 
  Es Babilonia (10:10; Daniel 1:1-2).
 
->[3]{#chapter11verse03} **Y dijeron los unos a los otros: Dad acá, hagamos ladrillo, y cozámoslo con fuego. Y fuéles el ladrillo en lugar de piedra, y el betún en lugar de mezcla.**  
+>[3]{#chapter11verse03} **Y dijeron los unos a los otros: Dad acá, hagamos ladrillo, y cozámos*lo* con fuego. Y fuéles el ladrillo en lugar de piedra, y el betún en lugar de mezcla.**  
 >[4]{#chapter11verse04} **Y dijeron: Dad acá: Edifiquémosnos una ciudad, y una torre, que tenga la cabeza en el cielo: y hagámosnos nombrados; por ventura nos esparciremos sobre la haz de toda la tierra.**  
 
-“Dad acá” – se dice para hacer cosas contra la voluntad de Dios. El SEÑOR les había dicho “henchíd la tierra” (9:1) pero ellos preferían quedarse en un lugar y hacerse un nombre. Nótese que sus materiales eran falsificados (ladrillo en vez de piedras; betún en vez de mezcla). También, están edificando una ciudad, como Caín, el maldito de Dios. Es el impulso del hombre natural, caído, buscar su propia forma de allegarse a Dios, y siempre ignora lo que estipuló Dios.
+“Dad acá” – se dice para hacer cosas contra la voluntad de Dios. El SEÑOR les había dicho “henchid la tierra” (9:1) pero ellos preferían quedarse en un lugar y hacerse un nombre. Nótese que sus materiales eran falsificados (ladrillo en vez de piedras; betún en vez de mezcla). También, están edificando una ciudad, como Caín, el maldito de Dios. Es el impulso del hombre natural, caído, buscar su propia forma de allegarse a Dios, y siempre ignora lo que estipuló Dios.
 Juan 10:1 – el hombre busca su manera en vez de la del SEÑOR
 Juan 1:51 – Dios aprobó a Su Hijo
 Colosenses 2:10 – Él es la cabeza, y la única manera de agradar a Dios
@@ -28,7 +28,7 @@ También se debe notar los verbos: primera persona plural. Sus dichos son la pri
 
 “descendió Jehová” – obviamente Dios no tenía que subir en un avión o bajarse en un cohete; Él se les prestó atención a lo que iban haciendo. Sin duda, Él apareció en la forma del ángel de Jehová.
 
->[6]{#chapter11verse06} **Y dijo Jehová: He aquí, el pueblo es uno, y todos estos tienen un lenguaje, y ahora comienzan a hacer, y ahora no dejarán de ejecutar todo lo que han pensado hacer.**  
+>[6]{#chapter11verse06} **Y dijo Jehová: He aquí, el pueblo *es* uno, y todos estos tienen un lenguaje, y ahora comienzan a hacer, y ahora no dejarán *de ejecutar* todo lo que han pensado hacer.**  
 
 “comienzan” – habían comenzado una religión, una manera propia de allegarse a Dios (v. 4).
 Isaías 14:12-14 (c.p. Juan 8:44; Efesios 2:2-3)
@@ -51,7 +51,7 @@ También, es interesante la facilidad con que Dios hace una cosa que a nosotros 
 
 “Babel” – significa “confusión”; בָּבֶל
 
->[10]{#chapter11verse10} **Estas son las generaciones de Sem: Sem de edad de cien años engendró a Arfajad, dos años después del diluvio.**  
+>[10]{#chapter11verse10} **¶ Estas *son* las generaciones de Sem: Sem de edad de cien años engendró a Arfajad, dos años después del diluvio.**  
 >[11]{#chapter11verse11} **Y vivió Sem, después que engendró a Arfajad, quinientos años, y engendró hijos e hijas.**  
 >[12]{#chapter11verse12} **Y Arfajad vivió treinta y cinco años, y engendró a Sale.**  
 >[13]{#chapter11verse13} **Y vivió Arfajad, después que engendró a Sale, cuatrocientos y tres años, y engendró hijos e hijas.**  
@@ -75,7 +75,7 @@ Esta genealogía ya se dio en Génesis 10:21-25, pero terminó con Jectán. Ahor
 
 Estos nombres nos llevan hasta Abram, cuyo nombre quiere decir “Padre Enaltecido”
 
->[27]{#chapter11verse27} **Y estas son las generaciones de Tare. Tare engendró a Abram, y a Nacor, y a Arán; y Arán engendró a Lot.**  
+>[27]{#chapter11verse27} **Y estas *son* las generaciones de Tare. Tare engendró a Abram, y a Nacor, y a Arán; y Arán engendró a Lot.**  
 
 Ahora estamos hablando aproximadamente el año 1996-2000 antes de Cristo. Nótese que Dios ya llamó a Abram fuera en capítulo 11 (12:1-3, “había dicho”), aunque no aparece hasta capítulo 12. La razón (que entendemos nosotros) es que 12 siendo el número de los Judíos, era necesario sacarle fuera de su país antes que Dios podía realizar Sus tratos con el hombre. Como nota devota, es muchas veces necesario que un hombre salga de su “zona de confort” para que Dios lo puede usar (o, mejor dicho, para que Dios quiera usarlo).
 “Lot” – aparece en el mismo capítulo de la torre de Babel; aunque era un hombre “justo”, no hay un buen testimonio acerca de este hombre, el cuadro o tipo bíblico perfecto de un creyente salvo, pero mundano.
@@ -86,8 +86,8 @@ Lot se mudó a la ciudad-estado de Sodoma, los hombres de la cual Dios dijo eran
 
 “Ur de los Caldeos” – La cuidad antigua de Ur se encontraba en el sur del país moderno de Iraq, cerca de donde probablemente estuvo el huerto de Eden. Los arqueólogos dicen que esta área es demasiado lejos de Harán para ser el punto de partida de Abram, pero la Biblia dice que sí, entonces es así.
 
->[29]{#chapter11verse29} **Y tomaron Abram y Nacor para sí mujeres: el nombre de la mujer de Abram fue Sarai, y el nombre de la mujer de Nacor, Melca, hija de Arán, padre de Melca, y padre de Jesca.**  
->[30]{#chapter11verse30} **Y Sarai fue estéril, que no tenía hijo.**  
+>[29]{#chapter11verse29} **Y tomaron Abram y Nacor para sí mujeres: el nombre de la mujer de Abram *fue* Sarai, y el nombre de la mujer de Nacor, Melca, hija de Arán, padre de Melca, y padre de Jesca.**  
+>[30]{#chapter11verse30} **Y Sarai fue estéril, que no *tenía* hijo.**  
 
 “Sarai” – significa “contenciosa”; luego Dios se la cambió el nombre a “Sarah” que quiere decir “princesa”; un cuadro del nuevo nacimiento, la naturaleza nueva que recibimos al ser salvo.
 7 Mujeres en la Biblia que tipifican la Virgen María, milagro de estirilidad:
@@ -99,7 +99,7 @@ Lot se mudó a la ciudad-estado de Sodoma, los hombres de la cual Dios dijo eran
 6.	Mujer principal de Suna – sin nombrarse (2 Reyes 4:14, 17)
 7.	Elisabet – Juan el Bautista (Lucas 1:7, 24)
 
->[31]{#chapter11verse31} **Y tomó Tare a Abram su hijo, y a Lot hijo de Arán, hijo de su hijo, y a Sarai su nuera, mujer de Abram su hijo: y salió con ellos de Ur de los Caldeos, para ir a la tierra de Canaán: y vinieron hasta Harán: y asentaron allí.**  
+>[31]{#chapter11verse31} **¶ Y tomó Tare a Abram su hijo, y a Lot hijo de Arán, hijo de su hijo, y a Sarai su nuera, mujer de Abram su hijo: y salió con ellos de Ur de los Caldeos, para ir a la tierra de Canaán: y vinieron hasta Harán: y asentaron allí.**  
 >[32]{#chapter11verse32} **Y fueron los días de Tare doscientos y cinco años, y murió Tare en Harán.**  
 
 Harán se encuentra en Asiria, al norte de la tierra prometida. Trataremos este pasaje en el próximo capítulo.

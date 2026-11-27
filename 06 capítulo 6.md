@@ -1,6 +1,6 @@
 ### GÉNESIS CAPÍTULO 6 {#chapter06}
 
->[1]{#chapter06verse01} **Y acaeció quecuando comenzaron los hombres a multiplicarse sobre la haz de la tierra, y les nacieron hijas,**  
+>[1]{#chapter06verse01} **Y acaeció *que* cuando comenzaron los hombres a multiplicarse sobre la haz de la tierra, y les nacieron hijas,**  
 >[2]{#chapter06verse02} **Viendo los hijos de Dios las hijas de los hombres que eran hermosas, tomáronse mujeres escogiendo entre todas.**  
 
 “hijos de Dios” – Primero de todo, no son hijos de hombres, ni son “la línea piadosa de Set”. Son hijos de Dios, como dice el pasaje. De otro modo la Biblia no tendría razón. Veamos algunos pasajes al respecto:
@@ -15,14 +15,14 @@ Judas 6
 El Tártaro es el lugar de espera, la cárcel espiritual, de los ángeles que no guardaron su origen.
 “grande día” – Es el gran trono blanco, o toma lugar alrededor del mismo tiempo. No hay ningún registro específico en Revelación del juicio de los ángeles (1 Corintios 6:3), pero sí ocurre al final del milenio (Revelación 20:12-13). Véase también: Job 26:5-6 (mar, sepulcro, infierno); 2 Pedro 2:4-5; Salmo 82:1-2, 6-7 (son creados).
 
->[3]{#chapter06verse03} **Y dijo Jehová: No contenderá mi Espíritu con el hombre para siempre, porque ciertamente él es carne: mas serán sus días ciento y veinte años.**  
+>[3]{#chapter06verse03} **Y dijo Jehová: No contenderá mi Espíritu con el hombre para siempre, porque ciertamente él *es* carne: mas serán sus días ciento y veinte años.**  
 
 “ciertamente él es carne” – El hombre no es espíritu. Sí tiene espíritu, pero en cuanto a su existencia caída, es carne (el alma y la carne del inconverso son la misma cosa; por eso el perdido no puede agradar a Dios, y le hace falta una circuncisión espiritual: Colosenses 2:9-14).
 “ciento y veinte años” – Seguramente marca el tiempo hasta el diluvio, dicho en versículo 7, por lo que pasa en versículo 4.
 Génesis 25:¿?
 Génesis 35:28
 
->[4]{#chapter06verse04} **Había gigantes en la tierra en aquellos días; y también después que entraron los hijos de Dios a las hijas de los hombres, y les engendraron hijos, estos fueron los valientes, que desde la antigüedad fueron varones de nombre.**  
+>[4]{#chapter06verse04} **Había gigantes en la tierra en aquellos días; y también después que entraron los hijos de Dios a las hijas de los hombres, y les engendraron *hijos*, estos *fueron* los valientes, que desde la antigüedad *fueron* varones de nombre.**  
 
 “valientes” – Se define por el contexto: son los “gigantes”. También por otros pasajes:
 Deuteronomio 2:10-12; 3:11-13
@@ -38,7 +38,7 @@ Levítico 17:11
 Actos 14:11-13; 19:35
 Las historias de los dioses míticos (Júpiter, Zeus, Artemis, Mercurio, los Olímpicos, etc.) y los semi-dioses (la progenie de los dioses y humanos) sin duda salieron de aquí. Incluso lo mentiroso/falso del mundo tiene algún rasgo de verdad bíblica.
 
->[5]{#chapter06verse05} **Y vio Jehová que la malicia de los hombres era mucha sobre la tierra, y que todo el intento de los pensamientos del corazón de ellos ciertamente era malo todo el tiempo.**  
+>[5]{#chapter06verse05} **Y vio Jehová que la malicia de los hombres *era* mucha sobre la tierra, y *que* todo el intento de los pensamientos del corazón de ellos ciertamente *era* malo todo el tiempo.**  
 
 Siendo que Él escudriña los intentos y los pensamientos del corazón (Hebreos 4:12-13), Él sabe todo, y Su juicio sobre una cosa es perfecto.
 “todo el intento” – No es lo que uno haga, es lo que uno es en su corazón. A Dios siempre le interesa más lo que esté a dentro del corazón que lo que hace.
@@ -73,7 +73,7 @@ Efesios 2:4 – Por eso, soy salvo (v. 1-3).
 “gracia” – La primera aparición de la palabra; significa (según el diccionario) “don o favor gratuita, benevolencia no merecido”. Nótese que “gracia” (de Dios) nunca se conecta con obras; puede ser que misericordia y obras van juntas, pero gracia se da como un don gratuito (Efesios 2:8-9).
 “Noé” – Romanos 2:6-11
 
->[9]{#chapter06verse09} **Estas son las generaciones de Noé: Noé, varón justo, perfecto fue en sus generaciones: con Dios anduvo Noé.**  
+>[9]{#chapter06verse09} **Estas *son* las generaciones de Noé: Noé, varón justo, perfecto fue en sus generaciones: con Dios anduvo Noé.**  
 
  “varón justo, perfecto” – Esta es la primera vez que aparecen estas palabras y este concepto, y por lo tanto establece el concepto y la definición por toda la Biblia. En ninguna parte significa “impecable”; quiere decir “completo, no falta nada”. La Biblia nombra tres varones quienes pudieran lograr el nivel más alto de justicia propia, y todos los tres tenían pecados (Ezequiel 14:14, 20).
 Génesis 7:1
@@ -89,7 +89,7 @@ En cuanto a la corrupción mencionada aquí, vea a Romanos 8:20-22. Toda la crea
 Dios advierte a los Suyos de lo que Él va a hacer (Génesis 18:17-19; 19:12-13).
 “con la tierra” – Indica que este era un diluvio universal/global, no un diluvio local como algunos dicen. Toda la tierra era destruida por Dios en este acontecimiento, y los que no lo creen simplemente no tienen razón.
 
->[14]{#chapter06verse14} **Házte un arca de madera de cedro: harás apartamientos en el arca, y embetunarla has por de dentro y por de fuera con betún.**  
+>[14]{#chapter06verse14} **Hazte un arca de madera de cedro: harás apartamientos en el arca, y embetunarla has por de dentro y por de fuera con betún.**  
 
 “arca” – Es una caja, de madera en este caso.
 Éxodo 25:10
@@ -116,8 +116,8 @@ Este nos muestra la realidad que hay tres cielos (2 Corintios 12:2). El taberná
 1 Reyes 6:4-7 (el templo de Salomón tenía tres divisiones)
 Ezequiel 41:16; 42:6 (el templo milenario, de 3 en 3)
 
->[17]{#chapter06verse17} **Y yo, he aquí que yo traigo un diluvio de aguas sobre la tierra, para destruir toda carne, en que haya espíritu de vida debajo del cielo: todo lo que hubiere en la tierra, morirá.**  
->[18]{#chapter06verse18} **Mas yo estableceré mi concierto contigo, y entrarás en el arca tú, y tus hijos, y tu mujer, y las mujeres de tus hijos contigo.**  
+>[17]{#chapter06verse17} **Y yo, he aquí que yo traigo un diluvio de aguas sobre la tierra, para destruir toda carne, en que haya espíritu de vida debajo del cielo: todo lo que *hubiere* en la tierra, morirá.**  
+>[18]{#chapter06verse18} **Mas *yo* estableceré mi concierto contigo, y entrarás en el arca tú, y tus hijos, y tu mujer, y las mujeres de tus hijos contigo.**  
 
 Con ocho personas, con un nuevo comienzo en capítulo 8, marca claramente la numerología bíblica del número ocho: nuevos comienzos. (1 Pedro 3:20)
 “mi concierto” – El Concierto (no “pacto”) Noético, a base de lo que Dios estipula. Obedecieron al mandato de Dios (7:7) y por consecuente escaparon de la destrucción de la tierra, conforme al concierto que Dios hizo.
@@ -127,14 +127,14 @@ Con ocho personas, con un nuevo comienzo en capítulo 8, marca claramente la num
 “dos de cada uno” – 7:8; 8:20; 7:3; nótese que no incluye insectos. Los tipos de animales que Noé llevó consigo en el arca se nombran en los versículos citados.
 “macho y hembra” – 7:19, 3, 9, 16; según su naturaleza. Cuando Dios menciona los animales como un grupo, los nombra según “especie” (v 20), pero no cuando está hablando de “macho y hembra”.
 
->[20]{#chapter06verse20} **De las aves según su especie, y de las bestias según su especie, de todo reptil de la tierra según su especie, dos de cada uno entrarán a tí, para que tengan vida.**  
+>[20]{#chapter06verse20} **De las aves según su especie, y de las bestias según su especie, de todo reptil de la tierra según su especie, dos de cada uno entrarán a ti, para que tengan vida.**  
 
 Lo que Dios llama “especie” hoy en día se llama por la ciencia (falsamente llamada así) “género” o “familia”, pero obviamente Dios tiene razón y ellos no.
 
->[21]{#chapter06verse21} **Y tú tómate de toda vianda que se come, y júntatela, y será para tí y para ellos por mantenimiento.**  
+>[21]{#chapter06verse21} **Y tú tómate de toda vianda que se come, y júntatela, y será para ti y para ellos por mantenimiento.**  
 
 Quedaba mucho espacio para muchos; el arca, lejos de estar lleno, estaba media vacío. Siempre hay espacio para los que quieren ser salvos; es de decisión propia que mueran.
 
->[22]{#chapter06verse22} **E hizo Noé conforme a todo lo que le mandó Dios: así lo hizo.**  
+>[22]{#chapter06verse22} **E hizo Noé conforme a todo lo que le mandó Dios: así *lo* hizo.**  
 
 Probablemente por eso halló gracia en los ojos de Dios; no porque hacía algo, sino que estaba dispuesto a obedecer lo que Dios le dijera. Marca una actitud muy ausente hoy en día; Jesús mismo lo anotó (Lucas 6:46).

@@ -3,7 +3,7 @@
 Aquí comienza la “Dispensación Patriarcal” de Larkin, mejor visto del punto de vista del “concierto Abrahámico” que se abordará aquí y también más adelante en Capítulo 15. Otra vez, vemos el establecimiento de la numerología bíblica, con el capítulo 12 siendo el llamado de Abraham y el comienzo del trato de Dios con un solo hombre y su simiente, ¡que no termina hasta Actos 7-10! Sin duda, este es el punto de demarcación más importante en el Antiguo Testamento, y veremos también el establecimiento del primer concierto eterno, es decir, sin fin.
 Además, en cuanto a la historia mundial, los primeros tres versículos de este capítulo presentan la verdad más importante al hombre porque indican el pueblo escogido de Dios, las bendiciones eternas (tantas físicas como espirituales) de Dios hacia ellos, y la maldición de Dios contra los enemigos de Su pueblo. Además, incluye la bendición más grande en el universo, la llegada del SEÑOR Jesu Cristo. No es posible sobreestimar este pasaje, ya que la vasta mayoría tanto del mundo como de los así llamados “creyentes” niegan por completo el cumplir literal de las promesas literales hechas a Abram en estos versículos.
 
->[1]{#chapter12verse01} **Empero Jehová había dicho a Abram: Vete de tu tierra, y de tu parentela, y de la casa de tu padre, a la tierra que yo te mostraré:**  
+>[1]{#chapter12verse01} **Empero Jehová había dicho a Abram: Vete de tu tierra, y de tu parentela, y de la casa de tu padre, a la tierra que *yo* te mostraré:**  
 
 (~1948 a.C., aunque Ussher dice 1921 a.C.) Este pasaje indica la razón detrás del acontecimiento de 11:31, y que Dios le había mandado esto antes de que estuviera en Haran (Actos 7:2-3); Dios le mandó salir de Ur. Sin embargo, no era hasta Haran que dejó su padre (parte del mandato), y no hasta capítulo 13 que deja su sobrino para finalmente cumplir con todo lo que Dios le dijo en este pasaje. Nótese las tres cosas que Dios le mandó dejar:
 1.	Su Tierra
@@ -30,13 +30,13 @@ Génesis 26:3-4; 27:28-29 – a Isaac y a Jacob después
 Números 23:20; 24:9 – a los 12 tribus de Israel, como nación
 El cumplimiento espiritual de esta promesa (como con todo) culmina en el SEÑOR Jesu Cristo, Gálatas 3:8, el “evangelio” a Abraham. En este versículo (de Gálatas) aparece tanto la Escritura (la Biblia), el evangelio (una sombra del evangelio de la gracia de Dios), y el Salvador que todavía no entendían que necesitaban.
 
->[4]{#chapter12verse04} **Y fuése Abram, como Jehová le dijo, y fue con él Lot: y era Abram de edad de setenta y cinco años, cuando salió de Harán.**  
+>[4]{#chapter12verse04} **Y fuése Abram, como Jehová le dijo, y fue con él Lot: y *era* Abram de edad de setenta y cinco años, cuando salió de Harán.**  
 >[5]{#chapter12verse05} **Y tomó Abram a Sarai su mujer, y a Lot hijo de su hermano, y toda su hacienda que habían ganado, y las almas que habían hecho en Harán, y salieron para ir a tierra de Canaán: y llegaron a tierra de Canaán.**  
 
 Dios marca la obediencia de Abraham de este punto. Sin embargo, como ya vimos, era una obediencia parcial todavía, ya que Lot le acompañaba.
 “alma” – vimos en capítulo 9 algunas cosas acerca del alma, y la revelación avanzada en la Biblia española de la “alma de la carne” (Levítico 17:11), pero aquí se nota que el alma se relaciona con todo el ser (v.13), no simplemente la fuerza vital o aspecto emocional del ser humano. Por consecuencia de la caída, ahora el alma sigue “pegada” al cuerpo, hasta que llegue el Espíritu Santo para hacer una operación espiritual (Colosenses 2:11-13).
 
->[6]{#chapter12verse06} **Y pasó Abram por aquella tierra hasta el lugar de Siquem, hasta el alcornoque de More: y el Cananeo estaba entonces en la tierra.**  
+>[6]{#chapter12verse06} **Y pasó Abram por aquella tierra hasta el lugar de Siquem, hasta el alcornoque de More: y el Cananeo *estaba* entonces en la tierra.**  
 
 Nótese que está pasando del este al oeste, en el sentido correcto.
 “alcornoque de More” – aquí aparece por primera vez esta palabra; la vamos a tratar más directamente después, pero este es un lugar poblado con alcornoques (un tipo de roble) que aparece después en Deuteronomio 11:30 y Jueces 7:1.
@@ -47,20 +47,20 @@ Nótese que está pasando del este al oeste, en el sentido correcto.
 Aunque Dios había hablado a Abraham antes, aquí le aparece por primera vez (por lo menos según el registro). Esta promesa, como ya vimos, se repite siete veces en el libro de Génesis solamente. Este acontecimiento se registra en Salmo 105:6-11.
 “edificó allí altar a Jehová” – ya comentamos acerca de los altares en 8:20. No dice que Dios se lo mandó, pero ya debieran de haber sabido que Dios se adora con un sacrificio. Abel (por implicancia), Noé, Abraham.
 
->[8]{#chapter12verse08} **Y pasóse de allí al monte, al oriente de Bet-el, y tendió allí su tienda, Bet-el al occidente, y Hai al oriente. Y edificó allí altar a Jehová, e invocó el nombre de Jehová.**  
+>[8]{#chapter12verse08} **Y pasóse de allí al monte, al oriente de Bet-el, y tendió *allí* su tienda, Bet-el al occidente, y Hai al oriente. Y edificó allí altar a Jehová, e invocó el nombre de Jehová.**  
 
 “Bet-el” – es la primera vez que aparece, y significa “casa de Dios”. Otra vez edificó altar a Dios.
 
->[9]{#chapter12verse09} **Y movió Abram de allí caminando, y yendo hacia el mediodía.**  
+>[9]{#chapter12verse09} **Y movió Abram *de allí* caminando, y yendo hacia el mediodía.**  
 
 Debería de haberse quedado en Canaán donde Dios le llevó. Aquí todo fue “cuesta abajo” (hacia el sur).
 
->[10]{#chapter12verse10} **¶ Y hubo hambre en la tierra, y descendió Abram a Egipto para peregrinar allá; porque era grave la hambre en la tierra.**  
+>[10]{#chapter12verse10} **¶ Y hubo hambre en la tierra, y descendió Abram a Egipto para peregrinar allá; porque *era* grave la hambre en la tierra.**  
 
 Abraham descendió a Egipto, un fuertísimo tipo del mundo, por causa de hambre. Este “padre de la fe” aquí se topa con su primera duda, y resulta en más problemas que pudiera haber entendido en ese entonces. Allí Sarah consiguió Agar, su sierva, y Lot posiblemente consiguió su mujer (comentarios en 11:27).
 “hambre en la tierra” – esta es la primera de 13 apariencias de grande hambre: Génesis 12:10; 26:1; 41:54-57; Rut 1:1; 2 Samuel 21:1; 1 Reyes 18:2; 2 Reyes 6:5; 8:1; 25:3; Amos 8:11; Actos 11:27-30; Revelación 6:6-8; 18:8.
 
->[11]{#chapter12verse11} **Y aconteció, que cuando llegó para entrar en Egipto, dijo a Sarai su mujer: He aquí ahora, yo conozco que eres mujer hermosa de vista:**  
+>[11]{#chapter12verse11} **Y aconteció, que cuando llegó para entrar en Egipto, dijo a Sarai su mujer: He aquí ahora, *yo* conozco que eres mujer hermosa de vista:**  
 
 Sarah ya tenía alrededor de 65 años, así que no era muy joven. Sin embargo, con las edades todavía alargadas después del diluvio (aunque disminuyendo), era como una mujer de hoy que tiene 30 años.
 
@@ -80,8 +80,8 @@ Nota que los egipcios querían mujeres hermosas de otras razas (Éxodo 1:16).
 Nótese las siete cosas en v. 16.
 
 >[17]{#chapter12verse17} **¶ Mas Jehová hirió a Faraón y a su casa de grandes plagas por causa de Sarai mujer de Abram.**  
->[18]{#chapter12verse18} **Entonces Faraón llamó a Abram, y díjole: ¿Qué es esto que has hecho conmigo? ¿Por qué no me declaraste, que era tu mujer?**  
->[19]{#chapter12verse19} **¿Por qué dijiste: Es mi hermana? y yo la tomé para mí por mujer. Ahora pues, he aquí tu mujer, tómala, y vete.**  
+>[18]{#chapter12verse18} **Entonces Faraón llamó a Abram, y díjole: ¿Qué *es* esto que has hecho conmigo? ¿Por qué no me declaraste, que era tu mujer?**  
+>[19]{#chapter12verse19} **¿Por qué dijiste: Es mi hermana? y *yo* la tomé para mí por mujer. Ahora pues, he aquí tu mujer, tóma*la*, y vete.**  
 >[20]{#chapter12verse20} **Entonces Faraón mandó acerca de él a varones, que le acompañaron, y a su mujer, y a todo lo que tenía.**  
 
 Los perdidos saben bien, ya que Dios les dio una consciencia (con-ciencia): Romanos 2:14-15. Faraón sabía que había pecado contra Dios (Génesis 20:1-16 con Abimilec, otro Camita).

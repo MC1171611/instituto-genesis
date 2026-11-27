@@ -1,6 +1,6 @@
 ### GÉNESIS CAPÍTULO 5 {#chapter05}
 
->[1]{#chapter05verse01} **Este es el libro de las descendencias de Adam. El día que creó Dios al hombre, a la semejanza de Dios le hizo.**  
+>[1]{#chapter05verse01} **Este *es* el libro de las descendencias de Adam. El día que creó Dios al hombre, a la semejanza de Dios le hizo.**  
 >[2]{#chapter05verse02} **Macho y hembra los creó, y bendíjolos, y llamó el nombre de ellos Adam, en el día en que fueron creados.**  
 
 “descendencias” – Todos en el libro de las descendencias de Adam mueren (menos uno, el cual es un tipo tanto del SEÑOR mismo como la iglesia, arrebatado antes de morir).
@@ -29,7 +29,7 @@ También, hay 5 suicidas en la Biblia:
 4.	Zambri (1 Reyes 16:18)
 5.	Judas Iscariote (Mateo 27:5)
 
->[3]{#chapter05verse03} **Y vivió Adam ciento y treinta años, y engendró un hijo a su semejanza, conforme a su imagen, y llamó su nombre Set.**  
+>[3]{#chapter05verse03} **Y vivió Adam ciento y treinta años, y engendró *un hijo a* su semejanza, conforme a su imagen, y llamó su nombre Set.**  
 
 “su semejanza” – La semejanza de Adam, no de Dios (1:26). Adam cayó y perdió la imagen de Dios.
 Romanos 3:23
@@ -87,7 +87,7 @@ Jenoc fue arrebatado, porque agradó a Dios, y porque buscó a Dios. Nótese que
 
 Matusalem era el hombre más anciano que cualquier, y murió con 969 años.
 
->[28]{#chapter05verse28} **Y vivió Lamec ciento y ochenta y dos años, y engendró un hijo.**  
+>[28]{#chapter05verse28} **Y vivió Lamec ciento y ochenta y dos años, y engendró *un* hijo.**  
 >[29]{#chapter05verse29} **Y llamó su nombre Noé, diciendo: Este nos consolará de nuestras obras, y del trabajo de nuestras manos de la tierra a la cual Jehová maldijo.**  
 
 Algunos sugieren que Lamec era un profeta, y que Dios le permitió que muriere antes que el diluvio por misericordia a Matusalem. La Biblia no nos indica si fuera así.

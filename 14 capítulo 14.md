@@ -1,7 +1,7 @@
 ### GÉNESIS CAPÍTULO 14 {#chapter14}
 
->[1]{#chapter14verse01} **Y aconteció en aquellos días, que Amrafel rey de Sennaar, Arioc rey de Elasar, Codor-laomor rey de Elam, y Tadal rey de las gentes,**  
->[2]{#chapter14verse02} **Hicieron guerra contra Bara rey de Sodoma, y contra Bersa rey de Gomorra, y contra Senaab rey de Adama, y contra Semeber rey de Seboim, y contra el rey de Bala, la cual es Segor.**  
+>[1]{#chapter14verse01} **Y aconteció en *aquellos* días, *que* Amrafel rey de Sennaar, Arioc rey de Elasar, Codor-laomor rey de Elam, y Tadal rey de las gentes,**  
+>[2]{#chapter14verse02} **Hicieron guerra contra Bara rey de Sodoma, y contra Bersa rey de Gomorra, y contra Senaab rey de Adama, y contra Semeber rey de Seboim, y *contra* el rey de Bala, la cual *es* Segor.**  
 
 En este capítulo aparece la primera mención de “guerra” en la Biblia. Como se nota, las gentes se agrupan en “ciudad-estados” empezando aquí, que evolucionaron en imperios grandes, pero empezaron así con reyes sobre ciudades. Muchas veces estos reyes o se presentaron como dioses a sus gentes, o cada ciudad tenía su propio dios que adoraron. Esta política humana seguirá hasta Revelación 20:9 donde Dios por fin acabará con todos los otros reyes y fuerzas políticas fuera del SEÑOR Jesu Cristo. (cp. Santiago 4:1-2)
 Se mencionan 9 reyes mundanos en total aquí (v. 9), y los cinco eran sobre las ciudades de la llanura (Deuteronomio 29:23):
@@ -12,20 +12,20 @@ Se mencionan 9 reyes mundanos en total aquí (v. 9), y los cinco eran sobre las 
 5.	Bala (Segor)
 El décimo rey aparece en versículo 18; se abordará en más detalle en el estudio sobre el libro de Hebreos. Como un detalle histórico, es conjetura que el “Amrafel” acá es el famoso Hammurabi de la historia seglar. Algunas fuentes rabínicas dicen que es el mismo Nimrod, pero no hay mucho respaldo para eso, ni bíblico ni histórico.
 
->[3]{#chapter14verse03} **Todos estos se juntaron en el valle de Siddim, que es el mar de sal.**  
+>[3]{#chapter14verse03} **Todos estos se juntaron en el valle de Siddim, que *es* el mar de sal.**  
 >[4]{#chapter14verse04} **Doce años habían servido a Codor-laomor, y a los trece años se levantaron.**  
 
 El decimotercio año rebelaron.
 
->[5]{#chapter14verse05} **Y a los catorce años vino Codor-laomor, y los reyes que estaban con él, e hirieron a Rafaim en Astarot-carnaím, y a Zuzim en Ham y a Emim en Save-cariataim.**  
->[6]{#chapter14verse06} **Y a los Horeos en el monte de Seir, hasta la llanura de Farán, que está junto al desierto.**  
+>[5]{#chapter14verse05} **Y a los catorce años vino Codor-laomor, y los reyes que *estaban* con él, e hirieron a Rafaim en Astarot-carnaím, y a Zuzim en Ham y a Emim en Save-cariataim.**  
+>[6]{#chapter14verse06} **Y a los Horeos en el monte de Seir, hasta la llanura de Farán, que *está* junto al desierto.**  
 >[7]{#chapter14verse07} **Y volvieron, y vinieron a En-mispat, que es Cádes, e hirieron todas las labranzas de los Amalecitas, y también al Amorreo, que habitaba en Hasasón-tamar.**  
 
 Nótese la mención de “Rafaim” y “Emim”, nombres relacionados con los gigantes: Deuteronomio 2:10-11; 2 Samuel 21:15-22. “Seir” es fuertemente relacionado con Esaú, que viene más tarde.
 
->[8]{#chapter14verse08} **Y salió el rey de Sodoma, y el rey de Gomorra, y el rey de Adama, y el rey de Seboim, y el rey de Bala, que es Segor, y ordenaron contra ellos batalla en el valle de Siddim:**  
->[9]{#chapter14verse09} **Es a saber, contra Codor-laomor rey de Elam, y Tadal rey de las gentes, y Amrafel rey de Sennaar, y Arioc rey de Elasar, cuatro reyes contra cinco.**  
->[10]{#chapter14verse10} **Y el valle de Siddim era lleno de pozos de betún: y huyeron el rey de Sodoma, y el de Gomorra, y cayeron allí: y los demás huyeron al monte.**  
+>[8]{#chapter14verse08} **Y salió el rey de Sodoma, y el rey de Gomorra, y el rey de Adama, y el rey de Seboim, y el rey de Bala, que *es* Segor, y ordenaron contra ellos batalla en el valle de Siddim:**  
+>[9]{#chapter14verse09} ***Es a saber*, contra Codor-laomor rey de Elam, y Tadal rey de las gentes, y Amrafel rey de Sennaar, y Arioc rey de Elasar, cuatro reyes contra cinco.**  
+>[10]{#chapter14verse10} **Y el valle de Siddim *era lleno de* pozos de betún: y huyeron el rey de Sodoma, y el de Gomorra, y cayeron allí: y los demás huyeron al monte.**  
 >[11]{#chapter14verse11} **Y tomaron toda la hacienda de Sodoma y de Gomorra, y todas sus vituallas, y fuéronse.**  
 
 Los rebeldes perdieron su batalla, pero como siempre, son los no-involucrados que sufren las consecuencias:
@@ -43,19 +43,19 @@ Aquí está la primera mención de “Hebreo” en la Biblia, antes de que exist
 “hermano” en el sentido “espiritual” (13:8); la Biblia hace claro que era su sobrino. Sin embargo, el uso de “hermano” en la Biblia es muy liberal a comparación a nuestra aplicación de la palabra literalmente (un hijo de los mismos padres de uno).
 “hasta Dan” – la ciudad fue nombrado “Dan” en Jueces 18:29, pero fue revelado a Moisés antes de que pasara. Su otro nombre era “Lais”.
 
->[15]{#chapter14verse15} **Y derramóse sobre ellos de noche él y sus siervos, e hirióles, y siguióles hasta Hoba, que está a la mano izquierda de Damasco.**  
+>[15]{#chapter14verse15} **Y derramóse sobre ellos de noche él y sus siervos, e hirióles, y siguióles hasta Hoba, que *está* a la *mano* izquierda de Damasco.**  
 >[16]{#chapter14verse16} **Y volvió toda la hacienda, y también a Lot su hermano, y su hacienda volvió a traer, y también las mujeres y el pueblo.**  
 
 Con 318 siervos, ¡destruyó a un ejército profesional! Esto aparece increíble, pero cuando Dios está con alguien, todo el mundo junto no puede estar delante de él. Atacaron de noche, que es una buena táctica militar. Sin embargo, no eran las tácticas que ganaron la victoria, sino el poder sobrenatural de Jehová.
 Nótese que menciona a Lot como separado, adicional a los demás. Dios conoce los que son Suyos, incluso cuando están metidos en el mundo, y los reconoce como aparte del mundo, a pesar de que se involucra voluntariamente en la porquería y asquerosidad del mundo, y merece el castigo que viene como consecuencia.
 
->[17]{#chapter14verse17} **Y salió el rey de Sodoma a recibirle, volviendo él de herir a Codor-laomor y a los reyes que estaban con él, al valle de Save, que es el valle del rey.**  
+>[17]{#chapter14verse17} **Y salió el rey de Sodoma a recibirle, volviendo él de herir a Codor-laomor y a los reyes que *estaban* con él, al valle de Save, *que es* el valle del rey.**  
 
 Abram se involucró por amor de Lot, no para ayudar a estos abominables. La victoria de ellos era un efecto colateral.
 
->[18]{#chapter14verse18} **¶ Entonces Melquisedec, rey de Salem, sacó pan y vino, él cual era sacerdote del Dios altísimo.**  
->[19]{#chapter14verse19} **Y bendíjole, y dijo: Bendito sea Abram del Dios altísimo, poseedor de los cielos y de la tierra.**  
->[20]{#chapter14verse20} **Y bendito sea el Dios altísimo, que entregó tus enemigos en tu mano. Y él le dio los diezmos de todo.**  
+>[18]{#chapter14verse18} **¶ Entonces Melquisedec, rey de Salem, sacó pan y vino, él cual *era* sacerdote del Dios altísimo.**  
+>[19]{#chapter14verse19} **Y bendíjole, y dijo: Bendito *sea* Abram del Dios altísimo, poseedor de los cielos y de la tierra.**  
+>[20]{#chapter14verse20} **Y bendito *sea* el Dios altísimo, que entregó tus enemigos en tu mano. Y *él* le dio los diezmos de todo.**  
 
 “Melquisedec” es un prototipo del SEÑOR Jesu Cristo, y se menciona muy pocas veces (Hebreos 5:6, 10; 6:20; 7:1, 10-11, 15, 17, 21), la mayoría de las cuales son citas de Salmo 110:4. Él era tanto “Rey de justicia” (lo que su nombre significa) como “Rey de paz”. Nótese que es primeramente Rey de “justicia”, porque no hay “paz” sin la justicia de Dios.
 La ciudad vinculada con este hombre es “Jerusalem”, la ciudad de paz (la paz de Jehová). Sin embargo, esta ciudad nunca ha tenido paz, y es la ciudad más disputada y guerreada que existe en la tierra. No será una ciudad de paz hasta que todos los hombres (especialmente los Judíos) reconozcan al SEÑOR Jesu Cristo como el “Rey de justicia”, y después puede ser también “Rey de paz” (Isaías 9:6; Hebreos 2:10; 1 Pedro 5:4; Revelación 1:5); esto pasará en la Segunda Venida (Aggeo 2:6-9), cuando establece Su tabernáculo después de haber ganado la victoria en guerra armada (Salmo 76:1-3). Es muy llamativo que Santiago 3:17 pone “pura” primero.
@@ -66,7 +66,7 @@ Como aplicación profética: Isaías 6:11-13; Salmo 124:1-8; Jeremías 51:34, 44
 
 >[21]{#chapter14verse21} **Entonces el rey de Sodoma dijo a Abram: Dáme las personas, y toma para ti la hacienda.**  
 >[22]{#chapter14verse22} **Y respondió Abram al rey de Sodoma: Mi mano he alzado a Jehová Dios altísimo, poseedor de los cielos y de la tierra,**  
->[23]{#chapter14verse23} **Que desde un hilo hasta la correa de un zapato, nada tomaré de todo lo que es tuyo, porque no digas: Yo enriquecí a Abram:**  
+>[23]{#chapter14verse23} **Que desde *un* hilo hasta la correa de *un* zapato, nada tomaré de todo lo que es tuyo, porque no digas: Yo enriquecí a Abram:**  
 >[24]{#chapter14verse24} **Sacando solamente lo que comieron los mancebos, y la parte de los varones que fueron conmigo Aner, Escol, y Mamré: los cuales tomarán su parte.**  
 
 Abram eligió lo bueno y rechazó ser enriquecido por los sodomitas, dando gloria a Dios. Como resultado de su fidelidad a Dios y su rechazo de las “comodidades temporales de pecado” (Hebreos 11:25), Dios le bendice en gran manera, espíritu, alma, y cuerpo.

@@ -1,7 +1,7 @@
 ### GÉNESIS CAPÍTULO 9 {#chapter09}
 El número nueve en la Biblia es el número de fruto. Después del nuevo comienzo (8), uno debe llevar fruto. Este capítulo abarca las tres fuentes de fructificación mundial, los hijos de Noé, desde 2.500 años d.C., hasta la población mundial de hoy de alrededor de 7.500.000.000 personas.
 
->[1]{#chapter09verse01} **Y bendijo Dios a Noé y a sus hijos, y díjoles: Fructificád y multiplicád, y henchíd la tierra.**  
+>[1]{#chapter09verse01} **Y bendijo Dios a Noé y a sus hijos, y díjoles: Fructificad y multiplicad, y henchid la tierra.**  
 
 Este es el mismo mandato dado a Adam (1:28), esta vez a Noé y (mayormente) a sus hijos. Este es el principio del Concierto Noético.
 
@@ -11,16 +11,16 @@ Este es el mismo mandato dado a Adam (1:28), esta vez a Noé y (mayormente) a su
 Hasta este punto, el hombre tenía dominio, pero no había temor. Ahora Dios introduce un gran cambio en el tema con el hombre, y por instinto los animales saben temer al hombre, porque es posible que será convertido en su almuerzo.
 Con los cambios mencionados en 8:22, resulta que ahora el hombre es omnívoro, que necesita comer de todo para alimentarse bien. Dios dio este mandato aquí, y nunca había un reverso de ello.
 
->[4]{#chapter09verse04} **¶ Empero la carne con su alma, que es su sangre, no comeréis.**  
+>[4]{#chapter09verse04} **¶ Empero la carne con su alma, *que es* su sangre, no comeréis.**  
 
 Hay una conexión importantísima que se revela en este versículo. La sangre es el alma; el alma es la sangre. Es decir, el aspecto físico del alma es la sangre. Por eso, y por toda la Biblia, el comer de sangre se prohíbe estrictamente:
 1.	Antes de la Ley de Moisés (aquí)
 2.	Bajo la Ley de Moisés – Levítico 17:10-14
 3.	Después de la Ley de Moisés – Actos 15:20
 
->[5]{#chapter09verse05} **Porque ciertamente vuestra sangre, que es vuestras almas, yo la demandaré, de mano de todo animal la demandaré, y de mano del hombre, de mano del varón su hermano demandaré el alma del hombre.**  
->[6]{#chapter09verse06} **El que derramare sangre de hombre en el hombre, su sangre será derramada; porque a imágen de Dios es hecho el hombre.**  
->[7]{#chapter09verse07} **Mas vosotros fructificád y multiplicád, y andád en la tierra, y multiplicád en ella.**  
+>[5]{#chapter09verse05} **Porque ciertamente vuestra sangre, *que es* vuestras almas, *yo la* demandaré, de mano de todo animal la demandaré, y de mano del hombre, de mano del varón su hermano demandaré el alma del hombre.**  
+>[6]{#chapter09verse06} **El que derramare sangre de hombre en el hombre, su sangre será derramada; porque a imagen de Dios es hecho el hombre.**  
+>[7]{#chapter09verse07} **Mas vosotros fructificad y multiplicad, y andád en la tierra, y multiplicad en ella.**  
 
 “vuestra sangre, que es vuestras almas” – Otra vez hace claro el tema del alma y la sangre. Hay varias referencias a vida (ánima) hasta ahora en Génesis: 1:20; 2:7, 19; 7:13-16. En este punto, los animales son lo mismo que los hombres (Eclesiastés 3:21) en que el alma (su vida) es su sangre. La sangre es lo que produce vida, el alma.
 Deuteronomio 12:23 – sangre es el alma
@@ -40,8 +40,8 @@ Incluso existía antes (Génesis 4:14), pero se estableció como mandato divino 
 
 >[8]{#chapter09verse08} **¶ Y habló Dios a Noé y a sus hijos con él, diciendo:**  
 >[9]{#chapter09verse09} **Yo: he aquí que yo establezco mi concierto con vosotros, y con vuestra simiente, después de vosotros,**  
->[10]{#chapter09verse10} **Y con toda alma viviente que está con vosotros, en aves, en animales, y en toda bestia de la tierra que está con vosotros, desde todos los que salieron del arca hasta todo animal de la tierra.**  
->[11]{#chapter09verse11} **Que yo estableceré mi concierto con vosotros que no será talada más toda carne con aguas de diluvio; y que no habrá más diluvio para destruir la tierra.**  
+>[10]{#chapter09verse10} **Y con toda alma viviente que *está* con vosotros, en aves, en animales, y en toda bestia de la tierra *que está* con vosotros, desde todos los que salieron del arca hasta todo animal de la tierra.**  
+>[11]{#chapter09verse11} **Que *yo* estableceré mi concierto con vosotros que no será talada más toda carne con aguas de diluvio; y que no habrá más diluvio para destruir la tierra.**  
 
 Aquí Dios establece un concierto no sólo con Noé, sino también con toda la tierra, y este concierto obviamente está vigente todavía. Versículos 1-17 todos tratan de este concierto. Es el concierto mencionado por Dios en 6:18. Además, se menciona siete veces en este pasaje (9, 11, 12, 13, 15, 16, 17).
 “concierto” – La palabra “concierto” es la palabra castellana bíblica para este trato especial de Dios con el hombre. Todas las versiones modernas desde la 1909 hasta la así llamada “Reina-Valera-Gómez” cambian esta palabra a “pacto” (otra razón por la cual sabemos que ellas NO son la palabra de Dios). Un “concierto” (etimológicamente “con” y “cierto”) según el diccionario tiene dos definiciones que corresponden al uso de esta palabra en la Biblia:
@@ -54,7 +54,7 @@ Bíblicamente, un concierto es un trato especial de Dios con uno o más hombres,
 Se ve claramente que un “pacto” tiene que ver con obras bajo la Ley de Moisés mientras un “concierto” es una concesión (o “dispensación”) de la gracia o misericordia de Dios, ¡sin obras! Una definición más básica sería que un “pacto” es una promesa condicional en obediencia y basada en obras, mientras un “concierto” es una promesa o arreglo incondicional que Dios cumple según Su voluntad y no está basada en el cumplir de leyes u obediencia. Por eso el SEÑOR derramó la sangre del “nuevo concierto” (Hebreos 12:24; 13:20), NO la del “nuevo pacto”, porque ¡no se base en nuestra obediencia!
 “con vosotros, y con vuestra simiente, después de vosotros” – Tiene la palabra “vosotros” (o sus formas) tres veces en versículo 8 solamente. Esto indica la naturaleza comprensiva y larga de este concierto. En vez de ser un concierto selectivo, como el que Dios hizo con Abraham (15:18; 17:2-21) en cuanto a un pueblo único, es un concierto global y general que abarca toda la humanidad desde Génesis 9 hasta que el SEÑOR renueve la tierra en el Milenio y después crea un nuevo cielo y una nueva tierra.
 
->[12]{#chapter09verse12} **Y dijo Dios: Esta será la señal del concierto que yo pongo entre mí y vosotros, y toda alma viviente que está con vosotros, por siglos perpetuos:**  
+>[12]{#chapter09verse12} **Y dijo Dios: Esta *será* la señal del concierto que yo pongo entre mí y vosotros, y toda alma viviente que *está* con vosotros, por siglos perpetuos:**  
 
 “señal” – v. 17; Conciertos son marcados por señales:
 Génesis 3:21 – no dice “concierto” pero sin duda alguna era parte del concierto (o “dispensación”) Adámico
@@ -62,24 +62,24 @@ Génesis 17:11
 Mateo 27:50-51 – señalaba el nuevo concierto
 
 >[13]{#chapter09verse13} **Mi arco pondré en las nubes, el cual será por señal de concierto entre mí y la tierra.**  
->[14]{#chapter09verse14} **Y será, que cuando yo anublare nubes sobre la tierra, entonces mi arco parecerá en las nubes:**  
->[15]{#chapter09verse15} **Y acordarme he de mi concierto que está entre mí y vosotros, y toda alma viviente en toda carne: y no serán más las aguas por diluvio para destruir a toda carne.**  
->[16]{#chapter09verse16} **Y estará el arco en las nubes, y verlo he para acordarme del concierto perpetuo entre Dios y toda alma viviente, con toda carne que está sobre la tierra.**  
->[17]{#chapter09verse17} **Dijo más Dios a Noé: Esta será la señal del concierto, que he establecido entre mí y toda carne, que está sobre la tierra.**  
+>[14]{#chapter09verse14} **Y será, que cuando *yo* anublare nubes sobre la tierra, entonces mi arco parecerá en las nubes:**  
+>[15]{#chapter09verse15} **Y acordarme he de mi concierto que *está* entre mí y vosotros, y toda alma viviente en toda carne: y no serán más las aguas por diluvio para destruir a toda carne.**  
+>[16]{#chapter09verse16} **Y estará el arco en las nubes, y verlo he para acordarme del concierto perpetuo entre Dios y toda alma viviente, con toda carne que *está* sobre la tierra.**  
+>[17]{#chapter09verse17} **Dijo más Dios a Noé: Esta *será* la señal del concierto, que he establecido entre mí y toda carne, que *está* sobre la tierra.**  
 
 “arco” – El arcoíris, que aparece después de la lluvia, cuando el sol ilumine el cielo y produce un efecto de refracción. Aparentemente Dios o cambió la naturaleza terrenal para permitir esto, o simplemente no había aparecido antes (quizás por la cubierta, capa de hielo que existía como parte de la creación original). No nos explica cómo ocurrió que ahora apareciese el arcoíris. Solamente sabemos que es así.
 Ezequiel 1:28-29
 Revelación 4:3
 La promesa recurrente en este pasaje es que nunca más destruirá el SEÑOR a la tierra con un diluvio de agua. Él rayó la maldad del hombre así una vez, pero no más lo hará así, a pesar de la cantidad de iniquidad que los hombres inventan (como en el mismo capítulo con Cam a continuación).
 
->[18]{#chapter09verse18} **Y fueron los hijos de Noé, que salieron del arca, Sem, Cam, y Jafet: y Cam es el padre de Canaán.**  
->[19]{#chapter09verse19} **Estos tres son los hijos de Noé, y de estos fue llena toda la tierra.**  
+>[18]{#chapter09verse18} **Y fueron los hijos de Noé, que salieron del arca, Sem, Cam, y Jafet: y Cam *es* el padre de Canaán.**  
+>[19]{#chapter09verse19} **Estos tres *son* los hijos de Noé, y de estos fue llena toda la tierra.**  
 
 La salida del arca ocurrió hace aproximadamente 4.500 años. Desde entonces, toda la tierra se ha llenado de los descendientes de estos tres hijos de Noé. Nótese que no hay ninguna indicación que Noé tuvo más hijos; de otro modo la Biblia no pondría tanto énfasis en el hecho de que “de estos [tres] fue llena toda la tierra”.
 “padre de Canaán” – esta frase aparece dos veces (v. 22). Cam es bendito con sus hermanos (9:1), pero no Canaán; esto llega a ser muy importante a continuación. Cam es el padre de los africanos y de los con piel negra. Una tabla se desarrollará luego.
 Salmo 105:23-27; 106:22 – “tierra de Cam” 3 veces en total
 
->[20]{#chapter09verse20} **¶ Y comenzó Noé a labrar la tierra, y plantó una viña:**  
+>[20]{#chapter09verse20} **¶ Y comenzó Noé a labrar la tierra, y plantó *una* viña:**  
 >[21]{#chapter09verse21} **Y bebió del vino, y embriagóse, y descubrióse en medio de su tienda.**  
 
 Como vimos en escudriñar los árboles en el huerto en Edén, el fruto prohibido era la uva (2:9 y los apuntes), y aparece de nuevo después del diluvio. Prácticamente, entra de nuevo el pecado también (pos-diluvia).
@@ -103,7 +103,7 @@ Sem	Asiático	Espíritu	Mongoloide	Oriental
 Cam	Africano	Carne	Negroide	Ecuatorial
 Jafet	Europeo	Alma	Caucásico	Occidental
 
->[25]{#chapter09verse25} **Y dijo: Maldito sea Canaán, siervo de siervos será a sus hermanos.**  
+>[25]{#chapter09verse25} **Y dijo: Maldito *sea* Canaán, siervo de siervos será a sus hermanos.**  
 
 “Canaán” – el primogénito de Cam, y posiblemente un descendiente directo de Caín.
 

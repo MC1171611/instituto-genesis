@@ -2,7 +2,7 @@
 
 Este capítulo, el número de los gentiles, contiene lo que se conoce como “La Tabla de las Naciones”, o un listado y explicación de los descendientes de los hijos de Noé. Según versículo 5, se llaman “Gentes” bíblicamente.
 
->[1]{#chapter10verse01} **Estas son las generaciones de los hijos de Noé: Sem, Cam, y Jafet, a los cuales nacieron hijos después del diluvio.**  
+>[1]{#chapter10verse01} **Estas *son* las generaciones de los hijos de Noé: Sem, Cam, y Jafet, a los cuales nacieron hijos después del diluvio.**  
 
 Salmo 105:44 – las tierras de los Gentiles
 Actos 14:1-2 – Griegos y Gentiles
@@ -31,7 +31,7 @@ Nótese los reinos terrenales de los gentiles, empezando con 10:10, el de Nimrod
 Todos encabezados por un tipo del Anticristo, y que cumulan en el reino terrenal del Anticristo mismo – Revelación 12:3; 13:1
 El registro paralelo a este se encuentra en 1 Crónicas 1.
 
->[2]{#chapter10verse02} **Los hijos de Jafet fueron Gomer, y Magog, y Madai, y Javán, y Tubal, y Mosoc, y Tiras.**  
+>[2]{#chapter10verse02} **Los hijos de Jafet *fueron* Gomer, y Magog, y Madai, y Javán, y Tubal, y Mosoc, y Tiras.**  
 >[3]{#chapter10verse03} **Y los hijos de Gomer: Ascenez, y Rifat, y Togorma.**  
 >[4]{#chapter10verse04} **Y los hijos de Javán: Elisa, y Társis, Cetim, y Dodanim.**  
 >[5]{#chapter10verse05} **Por estos fueron partidas las islas de las Gentes en sus tierras, cada cual según su lengua, conforme a sus familias en sus naciones.**  
@@ -43,7 +43,7 @@ Ezequiel 27:7 – “las islas de Elisa” con Egipto en el mismo versículo
 Ezequiel 38:2, 6 – Gog, Magog, Gomer Tubal, “los lados del norte”
 Revelación 20:8 – Gog y Magog
 
->[6]{#chapter10verse06} **¶ Los hijos de Cam fueron Cus, y Mizraim, y Fut, y Canaán.**  
+>[6]{#chapter10verse06} **¶ Los hijos de Cam *fueron* Cus, y Mizraim, y Fut, y Canaán.**  
 
 “Cam” – su nombre significa “quemado, por el sol, calor; marrón”.
 1 Crónicas 4:40 – los descendientes de Cam en Canaán
@@ -67,7 +67,7 @@ Aquí aparece el primero reino terrenal de hombre: Babel. Levítico 18 da un lis
 “Sennaar” – la tierra de Babilonia, Daniel 1:1-2.
 
 >[11]{#chapter10verse11} **De aquesta tierra salió Assur, el cual edificó a Nínive, y a Recobot-ir, y a Cale,**  
->[12]{#chapter10verse12} **Y a Resen entre Nínive y Cale, la cual es la ciudad grande.**  
+>[12]{#chapter10verse12} **Y a Resen entre Nínive y Cale, la cual *es* la ciudad grande.**  
 
 De estos Camitas vinieron los Asirios, Asur, y Assur, cuya capital era Nínive. En base de conjetura erudita, todas estas ciudades cercanas llegaron a ser llamadas “Nínive”, que explicaría su tamaño enorme en el tiempo de Jonás 3:3. También nótese Isaías 52:4 en conjunción con la historia de Éxodo 1:8-22. La erudición dice que esta ciudad fue nombrado por el hijo de Sem, pero la Biblia nos dice que era de Cam.
 
@@ -87,34 +87,34 @@ Otra vez, los habitantes de Canaán son Camitas, como con estos Filisteos.
 Estos son los habitantes originales de Canaán; Génesis 15:18-21.
 
 >[19]{#chapter10verse19} **Y fue el término de los Cananeos, desde Sidón viniendo a Gerar hasta Gaza, hasta entrar en Sodoma y Gomorra, Adma, y Seboim hasta Lasa.**  
->[20]{#chapter10verse20} **Estos son los hijos de Cam por sus familias, por sus lenguas, en sus tierras, en sus naciones.**  
+>[20]{#chapter10verse20} **Estos *son* los hijos de Cam por sus familias, por sus lenguas, en sus tierras, en sus naciones.**  
 
 Sodoma y Gomorra eran descendientes de Cam, específicamente de su hijo Canaán.
 
->[21]{#chapter10verse21} **¶ Y a Sem también le nacieron hijos; él fue padre de todos los hijos de Jeber, hermano de Jafet el mayor.**  
+>[21]{#chapter10verse21} **¶ Y a Sem también le nacieron *hijos*; él *fue* padre de todos los hijos de Jeber, hermano de Jafet el mayor.**  
 
 “Sem” – significa “nombrado, celebre”.
 
->[22]{#chapter10verse22} **Y los hijos de Sem fueron Elam, y Assur, y Arfajad, y Lud, y Aram.**  
+>[22]{#chapter10verse22} **Y los hijos de Sem *fueron* Elam, y Assur, y Arfajad, y Lud, y Aram.**  
 >[23]{#chapter10verse23} **Y los hijos de Aram: Hus, y Hul, y Geter, y Mes.**  
 >[24]{#chapter10verse24} **Arfajad engendró a Sale, y Sale engendró a Jeber.**  
 
 “Aram” – es importante to recordar este nombre cuando llegamos a los próximos capítulos; “Padan-aram” y los “Arameos”, familiares de Abraham (por su linaje de Faleg). Los “Arameos” eran primos de los “Hebreos”, de Jeber.
 “Jeber” – el linaje exacto de Abraham aparece así: Sem, Arfajad, Sale, Jeber, Faleg, Eru, Sarug, Nacor, Tare, Abram (Abraham). El nombre de Jeber se presta para hacer una conexión al nombre “Hebreo” (Génesis 14:13) aunque hay otras teorías de cómo llegaron a tener ese nombre.
 
->[25]{#chapter10verse25} **Y a Jeber nacieron dos hijos: el nombre del uno fue Faleg, porque en sus días fue partida la tierra: y el nombre de su hermano, Jectán.**  
+>[25]{#chapter10verse25} **Y a Jeber nacieron dos hijos: el nombre del uno *fue* Faleg, porque en sus días fue partida la tierra: y el nombre de su hermano, Jectán.**  
 
 “partida la tierra” – puede ser otra referencia a lo que dice versículo 5, o una referencia temporal a 11:8. También Deuteronomio 32:8; 12 divisiones de las gentes de la tierra. Otra teoría es que el nivel de los océanos subió durante la vida de Faleg, que hubiera prohibido que viajaran a varios puntos que ahora son poblados, pero actualmente no hay manera de llegar (antes habían “puentes terrestres” entre Asia y Australia, o Siberia y Norteamérica, etc.).
 
 >[26]{#chapter10verse26} **Y Jectán engendró a Elmodad, y a Salef, y a Asarmot, y a Jaré,**  
 >[27]{#chapter10verse27} **Y a Adoram, y a Uzal, y a Decla,**  
 >[28]{#chapter10verse28} **Y a Hebal, y a Abimael, y a Saba,**  
->[29]{#chapter10verse29} **Y a Ofir, y a Hevila, y a Jobab. Todos estos fueron hijos de Jectán.**  
+>[29]{#chapter10verse29} **Y a Ofir, y a Hevila, y a Jobab. Todos estos *fueron* hijos de Jectán.**  
 >[30]{#chapter10verse30} **Y fue su habitación desde Messa, viniendo de Sefar, monte de oriente.**  
->[31]{#chapter10verse31} **Estos fueron los hijos de Sem por sus familias, por sus lenguas, en sus tierras, en sus naciones.**  
+>[31]{#chapter10verse31} **Estos *fueron* los hijos de Sem por sus familias, por sus lenguas, en sus tierras, en sus naciones.**  
 
 Las gentes del medio y lejano oriente, descendientes de Sem.
 
->[32]{#chapter10verse32} **Estas son las familias de Noé por sus descendencias, en sus naciones: y de estos fueron divididas las naciones en la tierra después del diluvio.**  
+>[32]{#chapter10verse32} **Estas *son* las familias de Noé por sus descendencias, en sus naciones: y de estos fueron divididas las naciones en la tierra después del diluvio.**  
 
 La Biblia dice con certeza que estas cosas son así. No importa cuantos infieles o eruditos modernos proponen teorías contrarias, o cuantos descubrimientos arqueológicos que parecen estar en desacuerdo con las Escrituras, esta historia es 100% confiable porque es la palabra de Dios acerca del tema.

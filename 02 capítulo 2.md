@@ -6,7 +6,7 @@ En cuanto al establecer la numerología bíblica cabe señalar que el número 2 
 
 >[1]{#chapter02verse01} **Y fueron acabados los cielos y la tierra, y todo el ejército de ellos.**  
 
-Todo fue completado; desde aquí en adelante, “**nada hay nuevo debajo del sol**” (Eclesiastés 1:9), hasta la nueva creación (Revelación 20). A la vez, hay un “**nuevo hombre**” que resulta del “**nuevo nacimiento**” (2 Corintios 5:17), que en sí es el resultado de “**una cosa nueva**” (Jeremías 31:22). Nótese el uso de la mayúscula en la frase "**al Varón**" en ese versículo. Es algo excepcional en la Biblia Reina-Valera 1865, un vistazo a la profecía del nacimiento virginal del SEÑOR Jesu Cristo varios siglos después de que esto fuera escrito.
+Todo fue completado; desde aquí en adelante, “**nada hay nuevo debajo del sol**” (Eclesiastés 1:9), hasta la nueva creación (Revelación 20). A la vez, hay un “**nuevo hombre**” que resulta del “**nuevo nacimiento**” (2 Corintios 5:17), que en sí es el resultado de “**una cosa nueva**” (Jeremías 31:22). Nótese el uso de la mayúscula en la frase "**al Varón**" en ese versículo. Es algo excepcional en la Biblia Valera 1865, un vistazo a la profecía del nacimiento virginal del SEÑOR Jesu Cristo varios siglos después de que esto fuera escrito.
 
 La Biblia utiliza la palabra “**ejército**” para referirse a que toda la creación está ordenada en rangos (Eclesiastés 5:8) con Dios como el “Capitán” (Hebreos 12:2), y todo a fin de glorificarle a Él (Revelación 4:11). Efesios 6:12 habla de las potestades del aire, donde el dios de este siglo (2 Corintios 4:4) tiene su poderío, como tratamos en el primer capítulo. Nuestra milicia ni es contra la carne ni en la carne: es espiritual y requiere *sufrimiento* (2 Timoteo 2:3).
 
@@ -27,7 +27,7 @@ Ahora encontramos a nuestras "**nubes sin agua**" correctores de la Biblia ayud�
 Nótese que, aunque el sábado se menciona aquí como el "**día séptimo**", no se revela al hombre hasta Éxodo 16:23-30, y fue mandado solamente cuando se le dio la Ley de Moisés (Éxodo 20:8-10; Nehemías 9:13-14; Éxodo 19:20). El sábado era (y será) una “señal” (Éxodo 31:13, 17; Ezequiel 20:12, 20) a Israel, y nunca fue aplicable a ningún Gentil, menos los prosélitos a la religión judía. Los judaizantes modernos, sean los Adventistas u otros grupos que mezclan la doctrina bíblica con enseñanzas de hombres (o mujeres en el caso de los Adventistas) son malditos por predicar otro evangelio según el Apóstol san Pablo (Gálatas 1:6-9). Se debe notar que *antes* que el sábado fue revelado a Israel, Dios santificó al *primer día* como parte de la observancia de la pascua en Éxodo 12:16.
 
 >[4]{#chapter02verse04} **Estos *son* los orígenes de los cielos y de la tierra cuando fueron creados, en el día en que hizo Jehová Dios la tierra y los cielos,**  
->[5]{#chapter02verse05} **Y toda planta del campo antes que fuese en la tierra; y toda yerba del campo antes que naciese: porque aun no había hecho llover Jehová Dios sobre la tierra; ni *aun había* hombre, para que labrase la tierra.**  
+>[5]{#chapter02verse05} **Y toda planta del campo antes que fuese en la tierra; y toda yerba del campo antes que naciese: porque aún no había hecho llover Jehová Dios sobre la tierra; ni *aún había* hombre, para que labrase la tierra.**  
 >[6]{#chapter02verse06} **Y *un* vapor subía de la tierra, que regaba toda la haz de la tierra.**  
 
 Versículos 4-6 constituyen otro relato de la misma creación como ya vimos; no es otro proceso de creación. Relacionado a la frase “**la tierra y los cielos**” entendemos que trata de lo terrenal y físico; cuando el Señor habla de esto en el Nuevo Testamento, se refiere a esta creación original (Marcos 13:19; Mateo 19:4). Pues, es obvio que el SEÑOR Jesu Cristo *no* era evolucionista, y decir que Génesis 1-2 no es autoritativo es llamar al SEÑOR un *mentiroso*.
@@ -76,8 +76,8 @@ Jueces 9:8-15 – Una figura que da luz a los árboles en la Biblia, y su signif
 
 >[10]{#chapter02verse10} **Y salía *un* río de Edén para regar el huerto, y desde allí se repartía en cuatro cabezas.**  
 >[11]{#chapter02verse11} **El nombre del uno *era* Fisón: este *es* el que cerca toda la tierra de Hevila, donde hay oro:**  
->[12]{#chapter02verse12} **Y el oro de aquella tierra *es* bueno: *hay* allí *también* bdelio, y piedra cornerina.**  
->[13]{#chapter02verse13} **El nombre del segundo río *es* Gijón: este *es* el que cerca toda la tierra Etiopía.**  
+>[12]{#chapter02verse12} **Y el oro de aquella tierra *es* bueno: *hay* allí *también* bedelio, y piedra cornerina.**  
+>[13]{#chapter02verse13} **El nombre del segundo río *es* Gijón: este *es* el que cerca toda la tierra de Etiopía.**  
 >[14]{#chapter02verse14} **Y el nombre del tercer río *es* Jidekel: este es el que va hacia el oriente de la Asiria. Y el cuarto río *es* Éufrates.**  
 
 **“Jidekel”** – Parece el río Tigris. Sin embargo, si el mundo cambió drásticamente en el diluvio de Noé (por ejemplo, si subieron los continentes y montañas y cambió por completo la topografía), entonces puede ser que los hombres después del diluvio pusieron los nombres de lugares y ríos que habían antes del diluvio a los que encontraron después. Puede ser que no hay ninguna conexión entre estos ríos y los que existen en el mundo de hoy.
@@ -101,7 +101,7 @@ Nótese que hay dos partes al mandato:
 Al violar el mandato de versículo 17, perdió la bendición de versículo 16 (Génesis 3:22).
 También nótese que no hay ninguna fe operativa aquí; el “evangelio adámico” (por así decirlo) era “labra el huerto, coma de todos los árboles, no comas del árbol de ciencia de bien y de mal”. Vio a Dios, y obedeció, y por buenas obras mantuvo su “salvación” (quedarse en el huerto), y la perdió por hacer mal.
 
->[18]{#chapter02verse18} **Y dijo Jehová Dios: No es bueno que el hombre esté solo: hacerle he ayuda que *esté* delante de él.**  
+>[18]{#chapter02verse18} **Y dijo Jehová Dios: No *es* bueno que el hombre esté solo: hacerle he ayuda que *esté* delante de él.**  
 
 “ayuda” - ¡Para no estar solo! Como Dios quería (y quiere) tener comunión con el hombre, Dios quería que el hombre tenga una compañera para ayudarlo no estar solo.
 Proverbios 18:22
@@ -130,7 +130,7 @@ Nótese la manera completamente distinta de las otras obras creativitas de Dios.
 
 >[22]{#chapter02verse22} **Y edificó Jehová Dios la costilla que tomó del hombre, en mujer, y trájola al hombre.**  
 
-“edificó” – No dice “creó” ni “hizo”; es una “Revelación Avanzada” en la Reina-Valera 1865, y extremadamente importante en cuanto al entender la relación entre Cristo y Su iglesia, que es Su cuerpo.
+“edificó” – No dice “creó” ni “hizo”; es una “Revelación Avanzada” en la Valera 1865, y extremadamente importante en cuanto al entender la relación entre Cristo y Su iglesia, que es Su cuerpo.
 Efesios 2:20-22
 1 Corintios 3:9
 1 Pedro 2:5

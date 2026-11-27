@@ -45,8 +45,8 @@ La manera de Dios de manifestar Su agrado en una ofrenda.
 
 “no miró” – Y punto. Dios no mira al (no tiene agrado en el) hombre religioso. Los religiosos buscan establecer su propia justicia por sus obras, por seguir un código de cosas para hacer y no hacer. Caín debiera de haber reconocido que se había equivocado, y corregirlo. Pero, no.
 
->[6]{#chapter04verse06} **¶ Entonces Jehová dijo a Caín: ¿Por qué te has ensañado? ¿y por qué ha decaido tu semblante?**  
->[7]{#chapter04verse07} **¿Cómo, no serás ensalzado si bien hicieres: y si no hicieres bien, no estarás echado por tu pecado a la puerta? Con todo esto, a tí será su deseo; y tú te enseñorearás de él.**  
+>[6]{#chapter04verse06} **¶ Entonces Jehová dijo a Caín: ¿Por qué te has ensañado? ¿y por qué ha decaído tu semblante?**  
+>[7]{#chapter04verse07} **¿Cómo, no serás ensalzado si bien hicieres: y si no hicieres bien, no estarás echado *por tu* pecado a la puerta? Con todo esto, a ti será su deseo; y tú te enseñorearás de él.**  
 
 Estos versículos, más que nada, muestran la misericordia infinita de Dios, incluso con un hombre que ya había decidido que a él no importaba la voluntad de Dios. También, Dios dice aquí directamente Su requisito para ensalzar a alguien: tienen que humillarse primero (1 Pedro 5:6; Santiago 4:10).
 “pecado” – Es la primera aparición de la palabra, y el contexto obvio es rebeldía contra Dios y una falta de arrepentimiento. En tantas palabras, el pecado define por no hacer la voluntad de Dios.
@@ -58,7 +58,7 @@ Colosenses 4:3
 Revelación 3:8
 “a ti será su deseo” – Es la misma cosa que Dios dijo a la mujer en el capítulo anterior, refiriéndose a su esposo. El resultado de humillarse delante de Dios es que Él le ensalce, pero el hombre prefiere morir e ir al infiero en vez de humillarse y obedecer a Dios.
 
->[8]{#chapter04verse08} **Y hablo Caín a su hermano Abel. Y aconteció que estando ellos en el campo, Caín se levantó contra Abel su hermano, y le mató.**  
+>[8]{#chapter04verse08} **Y habló Caín a su hermano Abel. Y aconteció que estando ellos en el campo, Caín se levantó contra Abel su hermano, y le mató.**  
 
 Así comienza la historia humana. Por envidia de su hermano, lo mató.
 Proverbios 27:4
@@ -72,7 +72,7 @@ Sea como sea, o de simiente literal o espiritual del diablo, Caín cometió un p
 Juan 8:44
 Mentira se menciona por la primera vez en el próximo versículo, Génesis 4:9.
 
->[9]{#chapter04verse09} **¶ Y Jehová dijo a Caín: ¿Dónde está Abel tu hermano? Y él respondió: No sé: ¿Soy yo guarda de mi hermano?**  
+>[9]{#chapter04verse09} **¶ Y Jehová dijo a Caín: ¿Dónde *está* Abel tu hermano? Y él respondió: No sé: ¿Soy yo guarda de mi hermano?**  
 
 Otra vez Dios viene con estas preguntas retóricas. Obviamente Dios sabía lo que había pasado; versículo 10 nos muestra que Dios ya había oído la sangre de Abel clamando. Pero, una vez más, está dando oportunidad a Caín a ser honesto y admitir su pecado.
 “No sé” – Es la primera mentira recordada en la historia humana, y este patudo bocón está mintiendo ¡a Dios mismo!
@@ -90,7 +90,7 @@ Hebreos 11:4
 Hebreos 12:24
 Números 35:31-34
 
->[11]{#chapter04verse11} **Ahora, pues, maldito seas tú de la tierra, que abrió su boca para recibir la sangre de tu hermano de tu mano.**  
+>[11]{#chapter04verse11} **Ahora, pues, maldito *seas* tú de la tierra, que abrió su boca para recibir la sangre de tu hermano de tu mano.**  
 
 Caín es el primer hombre que Dios maldijo. Él llega a ser un tipo de Satanás y del anticristo, tanto como Abel su hermano justo es un tipo del Señor Jesu Cristo.
 
@@ -100,7 +100,7 @@ Caín es el primer hombre que Dios maldijo. Él llega a ser un tipo de Satanás 
 Esta palabra aparece 19 veces en la Biblia; 13 veces plural, 6 veces en singular. “Vagabundo” aplica más estrechamente (espiritualmente) a los perdidos en el mundo, que no tienen hogar definitivo, ni esperanza de tal. Aunque parecen estar tranquilos con sus casas físicas, faltan paz y gozo y por lo tanto son vagabundos y extranjeros espiritualmente.
 Por el otro lado, los salvos son “como vagabundos” (1 Corintios 4:11) en la carne (o deberían ser), pero no en el espíritu, porque tenemos esperanza eterna, aunque no en esta tierra (1 Pedro 2:11).
 
->[13]{#chapter04verse13} **Y dijo Caín a Jehová: Grande es mi iniquidad de perdonar.**  
+>[13]{#chapter04verse13} **Y dijo Caín a Jehová: Grande *es* mi iniquidad de perdonar.**  
 >[14]{#chapter04verse14} **He aquí, me echas hoy de la haz de la tierra, y de tu presencia me esconderé: y seré vagabundo y extranjero en la tierra: y será, que cualquiera que me hallare, me matará.**  
 
 No hubo ningún arrepentimiento ni clamor de perdón. El Dr. Ruckman decía “El pecado es locura”, y tenía razón. Caín se enfocaba solamente en sí mismo y en como su castigo le molestó, y no en que su pecado era contra Dios.
@@ -145,16 +145,16 @@ Isaías 14:21
 Actos 17:26-27
 
 >[18]{#chapter04verse18} **Y nació a Jenoc Irad, e Irad engendró a Maviael, y Maviael engendró a Matusael, y Matusael engendró a Lamec.**  
->[19]{#chapter04verse19} **¶ Y tomó para si Lamec dos mujeres, el nombre de la una fue Ada, y el nombre de la otra Sella.**  
+>[19]{#chapter04verse19} **¶ Y tomó para si Lamec dos mujeres, el nombre de la una *fue* Ada, y el nombre de la otra Sella.**  
 
 El primer ejemplo de la poligamia, que es contraria al plan divino (Génesis 2:24).
 1 Corintios 7:2
 
->[20]{#chapter04verse20} **Y parió Ada a Jabel, el cual fue padre de los que habitan en tiendas, y de los que tienen ganados.**  
+>[20]{#chapter04verse20} **Y parió Ada a Jabel, el cual fue padre de los que habitan en tiendas, y *de los que tienen* ganados.**  
 
 Probablemente era el primer nómade, viviendo en tiendas/carpas y cuidando ganados. “Jabel” supuestamente significa “fluyente corriente” en hebreo.
 
->[21]{#chapter04verse21} **Y el nombre de su hermano fue Jubal, el cual fue padre de todos los que tañen harpa y órgano.**  
+>[21]{#chapter04verse21} **Y el nombre de su hermano *fue* Jubal, el cual fue padre de todos los que tañen harpa y órgano.**  
 
 “Jubal” – “Sonido, músico, grito de alegría” significa su nombre. Es interesante notar la conexión a su vis-vis-vis-abuelo:
 Ezequiel 28:13
@@ -164,9 +164,9 @@ Hay dos clases de instrumentos musicales en estos dos versículos:
 
 Ahora bien, Dios creó la música y se le debe dar gloria por medio de la música. Sin embargo, se debe notar que la atracción de música carnal y mundana es fuerte para los músicos, al punto de que hay mucha integración con la música del mundo con la música de la iglesia (2 Corintios 2:11).
 
->[22]{#chapter04verse22} **Y Sella también parió a Tubalcaín acicalador de toda obra de metal y de hierro: y la hermana de Tubalcaín fue Noema.**  
+>[22]{#chapter04verse22} **Y Sella también parió a Tubal-caín acicalador de toda obra de metal y de hierro: y la hermana de Tubal-caín *fue* Noema.**  
 
-“Tubalcaín” – Significa “flujo llevado delante de Caín”.
+“Tubal-caín” – Significa “flujo llevado delante de Caín”.
 “metal” – En la Biblia, metal tipifica juicio. También en la Biblia usa las palabras “latón” y “bronce” a veces como sinónimos.
 “hierro” –
 Levítico 26:19
@@ -180,8 +180,8 @@ Daniel 7:19-21
 
 Es un buen lugar donde explicar la forma bíblica del “endíadis”, que proviene del griego “ἓν διὰ δυοῖν”, uno mediante dos. Según Wikipedia, “es una figura retórica que consiste en la expresión de un único concepto mediante dos términos coordinados .” Lamec mató a un solo hombre, pero lo dijo por medio de decir dos cosas similares. Pero, no era autodefensa, sino venganza por la vergüenza ocasionado por alguien más. Autodefensa es uno por uno, pero Lamec orgullosamente dice que sería vengado “setenta veces siete”. Probablemente por esta actitud de presunción, el SEÑOR citó a este dicho a Simón Pedro (Mateo 18:22).
 
->[25]{#chapter04verse25} **¶ Y conoció Adam aun a su mujer, y parió un hijo, y llamó su nombre Set; Porque (dice) Dios me ha dado otra simiente por Abel, al cual mató Caín,**  
->[26]{#chapter04verse26} **Y a Set también le nació un hijo, y llamó su nombre Enós. Entonces los hombres comenzaron a llamarse del nombre de Jehová.**  
+>[25]{#chapter04verse25} **¶ Y conoció Adam aun a su mujer, y parió un hijo, y llamó su nombre Set; Porque (*dice*) Dios me ha dado otra simiente por Abel, al cual mató Caín.**  
+>[26]{#chapter04verse26} **Y a Set también le nació *un* hijo, y llamó su nombre Enós. Entonces *los hombres* comenzaron a llamarse del nombre de Jehová.**  
 
 “conoció Adam aun a su mujer” – Véase 4:1.
 “Set” – Significa “dado, señalado”.
